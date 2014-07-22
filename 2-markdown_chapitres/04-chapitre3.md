@@ -1,9 +1,9 @@
 ## Chapitre 3
 
 Une nouvelle existence commençait. Il me fallut apprendre que l’on doit payer
-son logis, sa pension, la valeur de l’argent; toutes ces choses auxquelles
+son logis, sa pension, la valeur de l’argent ; toutes ces choses auxquelles
 jusque-là je n’avais pas arrêté mon esprit.  
-A mon tour, moi aussi, je trouvais des amis, que j’appelais des « protecteurs »,
+A mon tour, moi aussi, je trouvais des amis, que j’appelais des « protecteurs »,
 parce que, au nom de l’art, ils m’octroyaient de quoi régler mes dépenses.
 simple_new_line
 
@@ -15,29 +15,29 @@ Les jours où jouait la Garde républicaine, le prestige de son chef Parès fais
 — m’a-t-on affirmé — battre parmi elles bien des cœurs de bourgeoises.
 simple_new_line
 
-Dans « l’allée des Veuves », proche de la fontaine Médicis, à l’ombre
-protectrice du Sénat où siègent les « pères conscrits », de gracieux romans
+Dans « l’allée des Veuves », proche de la fontaine Médicis, à l’ombre
+protectrice du Sénat où siègent les « pères conscrits », de gracieux romans
 s’ébauchaient.  
-Certains murmuraient en me voyant si frêle : « Est-ce une enfant ou bien une
-femme ? »  
-« C’est la petite Jane, elle n’en a pas pour trois semaines à vivre… »
+Certains murmuraient en me voyant si frêle : « Est-ce une enfant ou bien une
+femme ? »  
+« C’est la petite Jane, elle n’en a pas pour trois semaines à vivre… »
 simple_new_line
 
 Car, en dehors des soirées dansantes, je n’existais guère. Tel un oiseau sur la
 branche, ne me souciant du lendemain non plus que de choses matérielles ni du
 souci de ma santé.  
-Et les soirs de _Bullier_, je ressuscitais !  
+Et les soirs de _Bullier_, je ressuscitais !  
 J’aurais dansé jusqu’à en perdre le souffle, et l’on m’aurait offert tous les
 trésors du monde que je n’aurais pas consenti à interrompre mes ébats.
 simple_new_line
 
-Un poète anglais, Robert H. Sherard, qui m’appelait « Fil de Soie » et m’aimait
-— oserai—je dire ? — avec « religiosité », entreprit de me protéger et de
+Un poète anglais, Robert H. Sherard, qui m’appelait « Fil de Soie » et m’aimait
+— oserai—je dire ? — avec « religiosité », entreprit de me protéger et de
 m’obliger à me soigner. Il satisfaisait tous mes caprices les plus impulsifs,
 voire les plus saugrenus.  
 Bien que j’eusse pour lui une reconnaissante tendresse, j’échappai à sa
 sollicitude.  
-J’appartenais toute à la danse, et rien d’autre n’existait pour moi !
+J’appartenais toute à la danse, et rien d’autre n’existait pour moi !
 simple_new_line
 
 J’ai bien souhaité, au cours des années, de le rencontrer, et bien déploré de ne
@@ -49,7 +49,7 @@ Sotte, je refusai. Ayant goûté aux joies de la liberté, je ne voulais pas
 l’aliéner.  
 Au temps de ma douloureuse enfance, sous la domination de ma mère, je m’étais
 confusément juré de n’en jamais subir une autre.  
-Ah ! cet esprit d’indépendance ! Il m’a fait manquer ou perdre bien des
+Ah ! cet esprit d’indépendance ! Il m’a fait manquer ou perdre bien des
 avantages, mais logique sur ce point avec moi-même, je ne l’ai jamais regretté.
 simple_new_line
 
@@ -57,13 +57,13 @@ La nécessité de faire face à mes dépenses m’obligea parfois à chercher fo
 simple_new_line
 
 Je dois du reste avouer que j’y étais fort maladroite. Je m’efforçais bien de
-choisir au mieux parmi mes soupirants; or, comme pour rien au monde je n’eusse
+choisir au mieux parmi mes soupirants ; or, comme pour rien au monde je n’eusse
 osé aborder la pénible question monétaire, il advint que je fus abusée.
 simple_new_line
 
-Ô jeunesse ! Ô candeur ! Bonne âme que j’étais ! L’on m’eût fort étonnée en
+Ô jeunesse ! Ô candeur ! Bonne âme que j’étais ! L’on m’eût fort étonnée en
 m’apprenant que je menais une vie en marge des lois établies par la morale des
-hommes  !
+hommes !
 
 Le café _Vachette_, remplacé à présent par une banque, était le principal lieu
 de réunion de bon nombre d’écrivains, de poètes et d’artistes. Parmi cette élite
@@ -77,57 +77,57 @@ C’est en cet endroit qu’un jeune poète en herbe, M. Pattinger, sut capter u
 de mon cœur qui commençait à s’éveiller.
 
 Le café _Soufflet_ était comme maintenant le lieu de réunion des saint-cyriens
-et des polytechniciens (« pipos »).  
+et des polytechniciens (« pipos »).  
 A La Source, on vidait force pintes. Le François Ier (qui fut le premier café où
 j’entrai), était, ainsi que Le Mahieu et Le Cluny, temple des joueurs.
 simple_new_line
 
 Il n’était pas rare de voir se croiser Bibi-la-Purée — pauvre hère hirsute — et
-« Monsieur Parfait », type de vieux beau ciré, luisant, calamistré, habillé de
+« Monsieur Parfait », type de vieux beau ciré, luisant, calamistré, habillé de
 façon impeccable, qui trottinait, précieux, sur ses hauts talons en lorgnant les
-« jeunesses ».  
+« jeunesses ».  
 De nombreux restaurants à vingt-trois sous — chantés depuis de spirituelle façon
-par Mayol — fournissaient à toute la jeunesse du « quartier » des nourritures
+par Mayol — fournissaient à toute la jeunesse du « quartier » des nourritures
 aussi abondantes que variées.  
-Comme c’est loin tout ça !  
+Comme c’est loin tout ça !  
 Il y avait aussi les brasseries, où le service était fait par les plus jolies
-filles, et qui connurent une longue vogue : La Chouette, Le Coq Hardi, Le Furet,
+filles, et qui connurent une longue vogue : La Chouette, Le Coq Hardi, Le Furet,
 Le Sénat, Le Bas-Rhin, Le d’Harcourt et tant d’autres…  
 Elles furent le tremplin d’où s’envolèrent la plupart de celles qui devinrent
-les demi—mondaines les plus fêtées — les « horizontales de marque », comme on
+les demi—mondaines les plus fêtées — les « horizontales de marque », comme on
 disait alors.  
 Elles eurent, en ce temps—là, de folles et tapageuses amours avec toute la
-jeunesse noble d’alors : beaux officiers de cavalerie, hussards, dragons,
+jeunesse noble d’alors : beaux officiers de cavalerie, hussards, dragons,
 chasseurs des garnisons de Saumur, Compiègne, Senlis, Provins, Rouen, etc., etc.
 simple_new_line
 
-Les jeudis de Bullier étaient très brillants et très courus. Les « anciennes de
-quartier » qui avaient prospéré dans leur vie galante n’hésitaient pas à
+Les jeudis de Bullier étaient très brillants et très courus. Les « anciennes de
+quartier » qui avaient prospéré dans leur vie galante n’hésitaient pas à
 traverser les ponts pour venir s’y faire admirer.  
 On y voyait également nombre d’artistes, gens de lettres, journalistes et
-personnalités notables « de l’autre côté de l’eau », suivant l’expression
+personnalités notables « de l’autre côté de l’eau », suivant l’expression
 courante.  
 De plusieurs je fus remarquée, qui s’offraient à s’occuper de mon avenir.
 simple_new_line
 
 Mais j’aimais trop ma liberté pour me mettre en tutelle.  
 La danse était ma seule passion. Mon trésor et mon… refuge.  
-J’y épanchais pour moi seule mes rêves, mes chagrins, mes espoirs ou mes joies;
+J’y épanchais pour moi seule mes rêves, mes chagrins, mes espoirs ou mes joies ;
 fuyant, et m’efforçant à ne pas voir ce que je commençais à comprendre des
 laideurs de la vie.  
 J’y étourdissais ma tristesse latente.  
 Elle me consolait de tout.  
 Et puis, j’allais souvent dans les musées afin d’y emplir mes yeux de belles
 choses, car la Beauté sous toutes ses formes m’attirait.  
-J’aurais tant aimé peindre !  
+J’aurais tant aimé peindre !  
 Ainsi, je continuais de rêver, gardant pour moi seule mes précieuses
 impressions.
 
 Les silhouettes féminines étaient alors fort gracieuses et amusantes, quoi qu’on
 puisse en penser aujourd’hui.  
-On portait la « polonaise », ou double jupe, et pour que les plis et poufs de
+On portait la « polonaise », ou double jupe, et pour que les plis et poufs de
 l’étoffe fussent mieux en valeur, on se garnissait en dessous d’un petit coussin
-dénommé « strapontin » qui soulignait la finesse de la taille; de tout petits
+dénommé « strapontin » qui soulignait la finesse de la taille ; de tout petits
 chapeaux haut juchés donnaient à toutes un délicieux air mutin dont Grévin
 s’inspira.  
 C’était le moment où la vogue du général Boulanger était à son apogée. Une
@@ -146,32 +146,32 @@ Du fiacre dans lequel j’étais, je m’amusai à lui envoyer un baiser. Il me 
 un aimable salut accompagné d’un non moins aimable sourire, et je n’en fus pas
 peu fière.  
 Peu de temps après, j’eus pour ami le fils d’un de ses proches et fidèles
-compagnons — lequel s’était réfugié à Londres après le « fiasco » de la belle
+compagnons — lequel s’était réfugié à Londres après le « fiasco » de la belle
 odyssée.  
 Le jeune Pierre Dil[lon] était pour moi un joyeux et tendre camarade. Que de
-folles randonnées nous fîmes ensemble, dont j’ai gardé « douce souvenance » !
+folles randonnées nous fîmes ensemble, dont j’ai gardé « douce souvenance » !
 simple_new_line
 
 Il était intrépide, audacieux. Ne s’amusa-t-il pas un soir de m’emmener dans
-l’hôtel familial situé à Neuilly !  
+l’hôtel familial situé à Neuilly !  
 C’est là, dans une chambre décorée d’œillets rouges — emblème du boulangisme —,
 qu’il s’en fallut de peu que je ne fusse mêlée à l’actualité de fâcheuse façon.
 simple_new_line
 
 Une malencontreuse hémorragie de mon compagnon, que je parvins non sans peine à
 faire cesser, en aurait été la cause.  
-On aurait certainement cru à un drame, et quelle histoire ça aurait fait !
+On aurait certainement cru à un drame, et quelle histoire ça aurait fait !
 simple_new_line
 
-Ouf, mon empereur, quelle émotion !
+Ouf, mon empereur, quelle émotion !
 
 Un soir que, mélancolique, je tournoyais seule à l’écart en me chantant de
 jolies choses dans les jardins de Bullier, je vis s’avancer vers moi un grand
 garçon qui, dès l’abord, me sembla bizarre avec son air inspiré.
 simple_new_line
 
-Il se mit à me dire des vers de Baudelaire, me comparant au « serpent qui danse
-» ainsi qu’à toutes sortes de divinités encore inconnues de moi.
+Il se mit à me dire des vers de Baudelaire, me comparant au « serpent qui danse
+ » ainsi qu’à toutes sortes de divinités encore inconnues de moi.
 simple_new_line
 
 C’était Teodor de Wyzewa, intime ami de Barrès, de Paul Adam et d’Albéric
@@ -183,24 +183,24 @@ Nous devions fréquemment nous revoir. Je me rappelle un soir où, sur le Boul�
 Mich’, M. Barrès et moi mangions des oranges en attendant le retour de Wyzewa,
 parti à la recherche d’un restaurateur à l’ardoise complaisante, où nous
 dînerions tous les trois.  
-Ce fut le « père Laveur » qui nous accueillit. Ce restaurant, situé rue
+Ce fut le « père Laveur » qui nous accueillit. Ce restaurant, situé rue
 Serpente, de vieille et célèbre mémoire, qui fut le réfectoire de l’élite
 intellectuelle qui devait fournir à notre pays nombre de valeurs et de noms
 glorieux.  
 Une autre fois, nous nous rendîmes tous trois à la fête de Saint-Cloud, rieurs
 comme des enfants, y dégustant frites et moules traditionnelles, suivies de
-poires que nous avions « chipées » au mur d’un jardin dans la campagne.
+poires que nous avions « chipées » au mur d’un jardin dans la campagne.
 simple_new_line
 
-En ce temps-là, le « grand patriote » n’avait pas encore découvert Le Jardin de
-Bérénice pour y cultiver son « moi » !  
+En ce temps-là, le « grand patriote » n’avait pas encore découvert Le Jardin de
+Bérénice pour y cultiver son « moi » !  
 Invitée à me rendre rue Blanche, j’y assistai à des dissertations métaphysiques
 ou philosophiques, auxquelles ma cervelle d’oiselle n’entendait goutte, non plus
 d’ailleurs qu’à la musique de Wagner. J’espaçai mes visites…  
 La dernière fois que j’y allai, il me fut donné de connaître ce qu’est un mufle
-complet — Wyzewa absent, on me pria de l’attendre, et cet « on » tenta de me
+complet — Wyzewa absent, on me pria de l’attendre, et cet « on » tenta de me
 faire violence.  
-Heureusement le mot cruel « qui vous la coupe » me vint aux lèvres, et je pus
+Heureusement le mot cruel « qui vous la coupe » me vint aux lèvres, et je pus
 ainsi échapper à ce geste de brute ou de fou.  
 De ce cher Wyzewa, qui fut pour moi toute bonté, je reparlerai plus loin…
 simple_new_line
@@ -208,14 +208,14 @@ simple_new_line
 Un grand et cher garçon, G. de Ch…, me voulait alors toute à lui, il m’aimait
 d’un amour jaloux, négligeant ses études à l’École centrale afin de rester près
 de moi.  
-Comme inconsciemment j’ai dû le faire souffrir ! C’est que je n’aurais pour un
+Comme inconsciemment j’ai dû le faire souffrir ! C’est que je n’aurais pour un
 empire su me passer d’aller danser, et cela le désespérait.  
 Son père, qui possédait à la Martinique des plantations sucrières, fit exprès le
 voyage pour le venir chercher et l’y emmener avec lui.  
 Fou de chagrin à l’idée de me quitter, il était prêt à mille folies, faillit se
 battre en duel, m’offrit de contracter à mon profit un gros emprunt, de faire
-diverses dettes : bijoux, etc., etc.  
-De toute mon honnêteté, je refusai et réussis à l’en dissuader; puis, le voyant
+diverses dettes : bijoux, etc., etc.  
+De toute mon honnêteté, je refusai et réussis à l’en dissuader ; puis, le voyant
 si malheureux, je lui promis tout ce qu’il me demanda.  
 De passer l’eau, de m’employer à quelque travail, modes ou autres…
 simple_new_line
@@ -226,21 +226,21 @@ Après qu’il fut parti, une occasion se présenta, qui me permit de faire honn
 cette fameuse rue du Caire dont le souvenir resta longtemps à tous ceux qui s’y
 amusèrent follement.  
 Elle était grouillante et animée, on y coudoyait les spécimens les plus divers
-de toutes les races qui y étaient représentées : Hindous, Maures, Cinghalais,
+de toutes les races qui y étaient représentées : Hindous, Maures, Cinghalais,
 Égyptiens, Chinois, Japonais.  
 C’est là que, pour la première fois chez nous, se produisirent les tziganes au
 Café Roumain, où je me souviens d’avoir dîné un soir en compagnie d’un futur et
 actuel académicien, H[enry] B[ordeaux].  
-Dans cette troupe, « les Lautars », était le fameux Rigo, dont les notes «
-filées » faisaient se pâmer tant de femmes, au nombre desquelles la princesse de
-Chimay qu’il enleva — à moins que ce ne fût le contraire !  
+Dans cette troupe, « les Lautars », était le fameux Rigo, dont les notes « 
+filées » faisaient se pâmer tant de femmes, au nombre desquelles la princesse de
+Chimay qu’il enleva — à moins que ce ne fût le contraire !  
 On pouvait y voir de midi à minuit défiler, dans un bruit assourdissant de
 tam-tams, des musiques et des joyeux rires de la foule, des âniers marocains
 fouaillant leurs bêtes, que de très jolies madames se disputaient la faveur de
 monter, et je sais nombre de coups de trique destinés aux ânes qui s’égarèrent
-sur les croupes des belles amazones !  
+sur les croupes des belles amazones !  
 Mais, baste, cela les enchantait. Ces âniers jouissaient auprès d’elles d’une
-telle vogue ! Des goûts et des couleurs on ne saurait discuter !
+telle vogue ! Des goûts et des couleurs on ne saurait discuter !
 simple_new_line
 
 Chaque matin, avant que de joindre mon poste, j’aimais à m’attarder longuement
@@ -264,13 +264,13 @@ Je m’aperçus bientôt qu’on me volait dans ma caisse et, soupçonnant tous 
 enturbannés, je m’avisai de leur jouer un bon tour.  
 Je plaçai dans mon tiroir une boîte de géraudels purgatifs [^3-1] et j’obtins un
 résultat plus complet que je n’eusse osé l’espérer, lorsque, le lendemain, je
-les vis tour à tour disparaître « en vitesse », rejoignant la file indienne des
-postulants au « petit endroit », jaunes et piteux, anxieux d’y arriver avant
-qu’il ne fût trop tard. Y compris le patron !!!  
+les vis tour à tour disparaître « en vitesse », rejoignant la file indienne des
+postulants au « petit endroit », jaunes et piteux, anxieux d’y arriver avant
+qu’il ne fût trop tard. Y compris le patron ! ! !  
 Je suis restée dans cet endroit environ trois mois pendant lesquels j’ai décliné
 les offres les plus alléchantes qui me furent adressées. J’étais fidèle à un
 souvenir, et j’y eus bien quelque mérite, puisque celui qui en était l’objet
-n’en a jamais rien su !  
+n’en a jamais rien su !  
 J‘ai connu plus tard sa triste fin dans le terrible séisme qui détruisit la
 Martinique.  
 Nous fîmes avec une camarade plusieurs incursions en divers lieux de plaisir
@@ -278,10 +278,10 @@ alors à la mode. D’abord aux Folies-Hippiques, situées rue Rochechouart, où
 pour 50 centimes, on pouvait faire à cheval plusieurs tours de piste et se
 livrer aux joies du patinage à roulettes.  
 Mon enthousiasme fut vif lorsque j’assistai aux inoubliables splendeurs des
-ballets à l’Êden-Théâtre : tout y était de style indien, et les décors féeriques
+ballets à l’Êden-Théâtre : tout y était de style indien, et les décors féeriques
 d’une richesse incomparable.  
 La Cornalba, admirable danseuse étoile, y triompha dans Excelsior et dans
-Messalina devant des salles combles. J’en ai gardé un souvenir enchanté !
+Messalina devant des salles combles. J’en ai gardé un souvenir enchanté !
 simple_new_line
 
 Ce magnifique théâtre somptueusement monté a disparu assez vite, sans doute à
@@ -298,24 +298,24 @@ depuis.
 Je fis très rapidement des progrès, et le chef écuyer Lucotte m’admit bientôt à
 l’honneur de monter en courses de haies.  
 De jolies et majestueuses filles conduisaient les courses de chars
-vertigineusement. C’était splendide !  
+vertigineusement. C’était splendide !  
 Je me souviens qu’un après-midi où l’on répétait La Chasse, mon cheval entier
 s’emballa.  
 Le directeur et tous ceux de la troupe, dans la crainte d’un accident, me
-harcelaient, gueulant bien plutôt que criant « Sciez la gueule, eh ! v[érole].
-Sciez la gueule, eh ! v[érole]… »  
-Ça, c’est le style du cirque !  
-Ces cris me donnèrent l’énergie nécessaire pour ne pas lâcher; de mes petits
+harcelaient, gueulant bien plutôt que criant « Sciez la gueule, eh ! v[érole].
+Sciez la gueule, eh ! v[érole]… »  
+Ça, c’est le style du cirque !  
+Ces cris me donnèrent l’énergie nécessaire pour ne pas lâcher ; de mes petits
 bras minces, je sciai, je sciai… tant et si bien qu’après je ne sais combien de
 tours de piste — et Dieu sait comme elle était grande —, tout se termina enfin
-pour le mieux. Il était temps ! On me félicita… Je ne l’avais pas volé !
+pour le mieux. Il était temps ! On me félicita… Je ne l’avais pas volé !
 simple_new_line
 
 Si souple était mon corps à ce moment, je le sentais si bien à ma merci, que
 j’aurais pu, me semblait-il, exécuter n’importe quel exercice du cirque.
 simple_new_line
 
-Quand même, tout cela pour moi ne valait pas la danse ! En compagnie d’une amie,
+Quand même, tout cela pour moi ne valait pas la danse ! En compagnie d’une amie,
 je me risquai un soir au bal de l’Élysée-Montmartre, dont la vogue n’était plus
 qu’à son déclin.  
 La foule y était très mélangée — plutôt mal que bien. Des filles à l’allure
@@ -323,27 +323,27 @@ effrontée y dansaient d’une façon que je trouvais incorrecte, au bras de
 bookmakers à tournure de bouchers, ou pis encore…  
 Un vieux bonhomme au visage polisson et canaille circulait parmi les danseurs,
 réclamant à chacun le montant de chaque danse. Il était, de plus, chargé de
-séparer les couples du même sexe. On le nommait le « Père la Pudeur ».
+séparer les couples du même sexe. On le nommait le « Père la Pudeur ».
 simple_new_line
 
 Cet endroit ne me plut pas. Combien je lui préférais le bal du Moulin-Rouge.
 simple_new_line
 
 Il venait d’ouvrir ses portes, était dirigé par Zidler, grand vieillard à
-favoris blancs, haut en couleur, type anglo-normand, connu de tout ce qui «
-comptait » au Paris d’alors.  
+favoris blancs, haut en couleur, type anglo-normand, connu de tout ce qui « 
+comptait » au Paris d’alors.  
 Il était le roi des marchands de plaisirs de ce temps-là, grand animateur, aussi
 bon qu’il était coléreux.  
 Un public nombreux affluait chaque soir chez lui. Noblesse du Gotha, noblesse
-des arts, et tout le « gratin » y essuyaient les plâtres, circulant parmi les
+des arts, et tout le « gratin » y essuyaient les plâtres, circulant parmi les
 travaux non encore achevés.  
-Une petite scène précédait la grande salle de bal; on y donnait concert avant
+Une petite scène précédait la grande salle de bal ; on y donnait concert avant
 l’heure venue de la danse.  
-D’une « gommeuse » qui s’intitulait « la Belle Chiquita », et dont la voix
-marquait quelque défaillance, le « patron » disait que cela importait peu pourvu
-qu’elle eût de belles cuisses !  
-Kamouna, transfuge de la danse du ventre, chantait : « Bonsoir, madame la Lune !
-» Elle devint par la suite, et tour à tour, l’amie du communard Lisbonne, du
+D’une « gommeuse » qui s’intitulait « la Belle Chiquita », et dont la voix
+marquait quelque défaillance, le « patron » disait que cela importait peu pourvu
+qu’elle eût de belles cuisses !  
+Kamouna, transfuge de la danse du ventre, chantait : « Bonsoir, madame la Lune !
+ » Elle devint par la suite, et tour à tour, l’amie du communard Lisbonne, du
 chansonnier Bruant, et pour finir, la seconde Mme Bolo.
 
 Yvette Guilbert y débutait en long sarrau, nattes au dos. Les gants noirs, ça
@@ -351,22 +351,22 @@ n’a été qu’ensuite, au Divan-Japonais.
 Dans les jardins était un énorme éléphant, dans lequel on montait voir des
 attractions. Il y avait de pittoresques courses à ânes. (Une charmante et
 lumineuse affiche de Chéret a fixé cette image.)  
-La salle du bal, splendide, brillait de mille feux; un orchestre endiablé
+La salle du bal, splendide, brillait de mille feux ; un orchestre endiablé
 rythmait de la vraie musique de danse.  
-Je fus conquise ! Je ne me doutais pas encore qu’elle allait devenir mon domaine
-!  
-Le succès des quadrilles battait son plein; on entourait les danseuses.
+Je fus conquise ! Je ne me doutais pas encore qu’elle allait devenir mon domaine
+ !  
+Le succès des quadrilles battait son plein ; on entourait les danseuses.
 simple_new_line
 
 Le quadrille consistait en plusieurs figures d’ensemble, sauf la dernière, dans
 laquelle chaque danseuse, à tour de rôle, pendant son cavalier seul, donnait
 libre cours à sa fantaisie personnelle, en même temps qu’elle avait repéré le
-spectateur qu’elle « décoifferait » en terminant sa danse, lui faisant, d’un
-pied leste et adroit, voler son chapeau à la grande hilarité de l’assistance !
+spectateur qu’elle « décoifferait » en terminant sa danse, lui faisant, d’un
+pied leste et adroit, voler son chapeau à la grande hilarité de l’assistance !
 simple_new_line
 
 Les jupons des danseuses, larges de douze mètres de tour, étaient faits, ainsi
-que les pantalons, d’entre-deux et de mousseuses dentelles; les bas noirs au
+que les pantalons, d’entre-deux et de mousseuses dentelles ; les bas noirs au
 milieu de ces neigeuses blancheurs faisaient mieux valoir la forme des jambes.
 simple_new_line
 
@@ -375,12 +375,12 @@ j’assortissais les couleurs à celles de mes toilettes, tout en gardant, moi
 aussi, les bas noirs.  
 En dessous de l’orchestre était fixée une grande glace devant laquelle des
 aspirantes essayaient leurs grâces, dans l’espoir de pouvoir briguer un jour les
-succès des danseuses. Certaines, gamines, étaient plaisantes à voir; il n’en
+succès des danseuses. Certaines, gamines, étaient plaisantes à voir ; il n’en
 allait pas de même pour quelques grasses dondons minaudantes qui gagnaient à ne
 pas insister.  
 Dansant seule, je fis sensation, comme on peut le penser, et je ne dois pas
-m’étonner que ces « dames » habituées m’aient aussitôt baptisée « Jane la Folle
-».  
+m’étonner que ces « dames » habituées m’aient aussitôt baptisée « Jane la Folle
+ ».  
 Il se peut qu’elles aient eu raison.  
 Zidler s’enthousiasma, m’offrit des sommes pour que j’accepte un engagement.
 simple_new_line
@@ -390,34 +390,34 @@ Il ne manquait jamais de m’exhiber aux visiteurs de marque, que je déconcerta
 un peu.  
 M’exprimant avec quelque recherche, on me crut forte en thème. Je me rappelle un
 personnage assez ordinaire qui, pour se venger de mon dédain, donnait à entendre
-avec quelque suffisance et de l’ironie que « Pascal » était en permanence sur ma
-table de chevet !  
-Ça me faisait une sorte d’auréole ! Or, je ne possédais même pas le certificat
-d’études primaires !  
+avec quelque suffisance et de l’ironie que « Pascal » était en permanence sur ma
+table de chevet !  
+Ça me faisait une sorte d’auréole ! Or, je ne possédais même pas le certificat
+d’études primaires !  
 Sans doute qu’ayant beaucoup lu, et des meilleurs auteurs, ma mémoire excellente
 avait à mon insu enregistré ce qu’elle en avait pu retenir.  
 Et puis, ça n’est pas une raison, parce qu’on est danseuse, que l’on ne puisse
-avoir un langage différent de celui d’une gardeuse de dindons !  
+avoir un langage différent de celui d’une gardeuse de dindons !  
 Des légendes se formaient. Ces dames affirmaient à ceux qui les interrogeaient
-sur mon compte : « C’est une fille de bonne famille anglaise, un peu détraquée,
-à laquelle les siens assurent une pension pour s’en débarrasser ! »
+sur mon compte : « C’est une fille de bonne famille anglaise, un peu détraquée,
+à laquelle les siens assurent une pension pour s’en débarrasser ! »
 simple_new_line
 
-Certaines me supposaient en proie à tous les genres de vices ; une grande
-actrice devait m’entretenir ; je devais me livrer aux délices que procure la
+Certaines me supposaient en proie à tous les genres de vices ; une grande
+actrice devait m’entretenir ; je devais me livrer aux délices que procure la
 morphine, aux voluptés de l’opium… et mille autres histoires aussi saugrenues.
 simple_new_line
 
 La vérité, c’est qu’en effet j’étais absolument différente des autres danseuses,
 dont beaucoup étaient tout près de l’état de nature. Pas mal d’entre elles me
-jalousaient qui, pour se moquer, me déléguaient leurs « petits amis », qu’elles
-appelaient « leurs Jésus », afin de m’inviter à danser avec eux.
+jalousaient qui, pour se moquer, me déléguaient leurs « petits amis », qu’elles
+appelaient « leurs Jésus », afin de m’inviter à danser avec eux.
 simple_new_line
 
 Il va sans dire que je déclinais leurs invitations, leur genre spécial, ainsi
 qu’un bienheureux instinct, me faisant les fuir.  
-Lassées, elles s’abstinrent, car privilégiée et choyée par Zidler, j’étais «
-taboue ». Aucune d’elles n’aurait osé me malmener comme elles en furent tentées.
+Lassées, elles s’abstinrent, car privilégiée et choyée par Zidler, j’étais « 
+taboue ». Aucune d’elles n’aurait osé me malmener comme elles en furent tentées.
 simple_new_line
 
 J’aurais pu me permettre n’importe quelles excentricités ou folles fantaisies,
@@ -428,18 +428,18 @@ Mes yeux cernés m’attiraient bien des désirs — que je n’ai jamais satisf
 tant j’eus toujours l’horreur du désir brutal, du vice et de tout ce qui en
 approche.  
 Et cependant, combien de ceux qui m’ignoraient me jugeaient susceptible de
-procurer des sensations rares et compliquées !  
+procurer des sensations rares et compliquées !  
 En réalité, j’étais seulement une aimante, avec un immense besoin d’épancher
 toute la tendresse que la nature avait mise en moi, avec des trésors de
 délicatesse et de douceur que toujours je dus réfréner, car il m’aurait fallu
 les distribuer à bon escient, et les occasions de le pouvoir faire sont si rares
-!  
+ !  
 Alors, pour ne pas faire rire de moi dans ce milieu où le hasard m’avait portée,
 je déguisais mon âme, offrant l’apparence dune puérile et folle gaieté, avec un
-air de tout prendre à la blague !  
+air de tout prendre à la blague !  
 J’ai bien souvent eu le sentiment que j’aurais dû exister au temps du
 romantisme, au cours duquel je m’imagine que l’on pouvait sans ridicule être
-sincère, tout au moins en avoir l’illusion !  
+sincère, tout au moins en avoir l’illusion !  
 Je n’étais pas vraiment jolie (tout de même assez gentille, je crois), mais il
 paraît que de moi émanait un certain charme — inquiétant, disaient d’aucuns —
 et, tant de fois on me l’a répété, je suis presque sûre que j’étais très
@@ -451,8 +451,8 @@ musique, et que jamais je ne saurais et n’oserais exprimer.
 
 > La danse en me berçant  
   Me rythmait de beaux rêves.  
-  Ô danse, ma passion ! mon vice !  
-  Chère et douce confidente !
+  Ô danse, ma passion ! mon vice !  
+  Chère et douce confidente !
 
 Entourée d’artistes, de fins d’esprit, d’auteurs célèbres, d’hommes distingués,
 et par eux encensée, je commençais de sentir éclore un sentiment de vanité.
@@ -480,9 +480,9 @@ simple_new_line
 
 Que de souvenirs précieux et grandioses s’y trouvaient, dont plusieurs de sa
 grande amie, la tragédienne Rachel — de laquelle il disait que j’avais la voix
-émouvante !  
+émouvante !  
 Il avait été un temps directeur de la Comédie-Française, avait, dans sa
-jeunesse, enlevé une danseuse connue du bal Mabille, « la Fille de l’Air », à
+jeunesse, enlevé une danseuse connue du bal Mabille, « la Fille de l’Air », à
 laquelle il aimait de me comparer.  
 J’étais fière et honorée de sa grande amitié. Il est mort, âgé de 84 ans, encore
 entouré de jolies femmes, encore aimé d’elles…  
@@ -490,57 +490,57 @@ entouré de jolies femmes, encore aimé d’elles…
 Parmi les reines du quadrille brillait en première place la Goulue, superbe
 fille d’une insolente beauté, éclatante de fraîcheur et de santé, si
 appétissante malgré que fort vulgaire de langage et d’allures. Elle réalisait en
-son entier le type « chair à plaisir ».  
+son entier le type « chair à plaisir ».  
 En tant que danseuse, elle bornait son talent à lever ses jambes parfaites, mais
 avec tant de désinvolture et de galbe quelle n’arrivait pas à être indécente,
 même lorsque, au final, Valentin le Désossé, son danseur, l’enlevait toutes
-voiles dehors dans un fouillis de dentelles; tout ce qu’elle laissait entrevoir
+voiles dehors dans un fouillis de dentelles ; tout ce qu’elle laissait entrevoir
 était joli de formes.  
-Elle était batailleuse et aimait de « charrier » les modestes ou gauches
+Elle était batailleuse et aimait de « charrier » les modestes ou gauches
 nouvelles venues. Une pauvre débutante algérienne, nommée Aïcha, lui tint tête
 un soir.  
 Rendez-vous fut pris pour régler leur différend sur le pont Caulaincourt à une
 heure du matin.  
 Je n’y assistai pas, mais on me conta la scène le lendemain. Les deux femmes se
-battirent au milieu d’un cercle d’hommes « du milieu » — ainsi que l’on dit
+battirent au milieu d’un cercle d’hommes « du milieu » — ainsi que l’on dit
 aujourd’hui — et de spectateurs que ce genre de choses intéresse, qui
-n’intervinrent que juste assez à temps pour empêcher la pauvre « Goulue » d’être
+n’intervinrent que juste assez à temps pour empêcher la pauvre « Goulue » d’être
 précipitée du haut du pont dans le cimetière de Montmartre par sa robuste
 adversaire.
 
-Une grande rousse à falbalas, très allurale, « Rayon d’Or », dansait élégamment,
-très décorative, mais celle que j’admirais, c’était « la Sauterelle », grande,
+Une grande rousse à falbalas, très allurale, « Rayon d’Or », dansait élégamment,
+très décorative, mais celle que j’admirais, c’était « la Sauterelle », grande,
 mince, sèche, dans ses pas savants qui martelaient le sol avec méthode,
 strictement en mesure.  
-Il me faut citer aussi la « Môme Fromage », petit gavroche pas mal voyou, formée
-à l’école de « la Goulue » et lui servant de repoussoir, puis une certaine
-Macarona qui s’essaya à remplacer « la Goulue » lorsque celle-ci abandonna la
+Il me faut citer aussi la « Môme Fromage », petit gavroche pas mal voyou, formée
+à l’école de « la Goulue » et lui servant de repoussoir, puis une certaine
+Macarona qui s’essaya à remplacer « la Goulue » lorsque celle-ci abandonna la
 danse pour s’installer dompteuse de fauves sur les conseils du belluaire Pezon
 dont elle raffola.  
 Cette Macarona mal jambée, en des pantalons de tulle noir à pastilles, était
 surtout fort indécente et sans grâce.  
-Je fuyais ce spectacle, de même que je me refusais d’assister aux séances du «
-Pétomane », un farceur qui acquit une fortune.  
-Nous avions des « Torpille », des « Reine des Prés », des « Galipette », des «
-Gavrochinette »…   
-Zidler avait voulu m’affubler aussi d’un sobriquet, « Mélinite », que je refusai
+Je fuyais ce spectacle, de même que je me refusais d’assister aux séances du « 
+Pétomane », un farceur qui acquit une fortune.  
+Nous avions des « Torpille », des « Reine des Prés », des « Galipette », des « 
+Gavrochinette »…   
+Zidler avait voulu m’affubler aussi d’un sobriquet, « Mélinite », que je refusai
 d’accepter.  
-Il y eut aussi « Nini Patte-en-l’air », affreux laideron, appelée aussi « la
-Charbonnière ».  
+Il y eut aussi « Nini Patte-en-l’air », affreux laideron, appelée aussi « la
+Charbonnière ».  
 Elle engageait en qualité de bonnes — à tout faire — de malheureuses filles
-auxquelles elle enseignait à lever la jambe et faire le « grand écart », se
+auxquelles elle enseignait à lever la jambe et faire le « grand écart », se
 chargeant de leur entretien. Elle fournissait leurs dessous et les produisait
 chaque soir au Moulin.  
-Elle appelait cette misérable troupe son « école ». Pauvres « Arc-en-Ciel », «
-Cyclone », « Étoile Filante » et autres « Clair-de-Lune ».  
+Elle appelait cette misérable troupe son « école ». Pauvres « Arc-en-Ciel », « 
+Cyclone », « Étoile Filante » et autres « Clair-de-Lune ».  
 De vieux habitués — petits vieux bien propres —, qui faisaient quotidiennement
-tapisserie au Moulin, se rendaient chez elle la journée pour « arbitrer » les
-leçons de « dressage », n’ayant au reste que de lointains rapports avec la
+tapisserie au Moulin, se rendaient chez elle la journée pour « arbitrer » les
+leçons de « dressage », n’ayant au reste que de lointains rapports avec la
 Danse.  
-Parmi les danseuses évoluaient quelques pâles éphèbes — danseurs honoraires —. «
-Fil-de-Fer », « Vif-Argent », « Pomme d’Amour », qui cherchaient à se rendre
+Parmi les danseuses évoluaient quelques pâles éphèbes — danseurs honoraires —. « 
+Fil-de-Fer », « Vif-Argent », « Pomme d’Amour », qui cherchaient à se rendre
 utiles.  
-Chaque samedi avaient lieu des « redoutes » sur des chars fleuris. Les plus
+Chaque samedi avaient lieu des « redoutes » sur des chars fleuris. Les plus
 gentilles et jeunes Montmartroises groupées par des artistes représentaient les
 œuvres d’art les plus célèbres des maîtres de la peinture et de la sculpture.
 simple_new_line
@@ -549,54 +549,54 @@ C’était une charmante impression d’art. Les nus eux-mêmes demeuraient chas
 ces temps sont révolus…  
 Nul ne peut se faire une exacte idée de l’éblouissante cacophonie de trois
 orchestres de cuivres dont les musiciens, costumés en anges, soufflaient dans de
-grandes trompettes. Quel tintamarre !  
+grandes trompettes. Quel tintamarre !  
 Un étranger entré là pour la première fois devait se sentir ahuri, emporté par
 le tohu-bohu d’une foule en joie.  
 Je n’ai jamais, depuis, retrouvé nulle part cette sensation de gaieté collective
 et pourtant de bon aloi.  
 Ce qui. probablement. n’empêchait pas le sus-dit. une fois rentré dans son pays,
-de vitupérer notre « Babylone moderne ».  
-Le prince de Mayréna, qui tenait sa « noblesse » de son frère — aventurier qui
-s’était couronné « le Roi des Sedangs » Marie Ier — comptait à son actif un
+de vitupérer notre « Babylone moderne ».  
+Le prince de Mayréna, qui tenait sa « noblesse » de son frère — aventurier qui
+s’était couronné « le Roi des Sedangs » Marie Ier — comptait à son actif un
 nombre incalculable de succès féminins et pilotait les plus belles femmes
-appartenant. à des titres divers. à la plus « haute Bicherie ».  
-Alexandre Duval (dit « Godefroy de Bouillon »), le prince Troubetzkoï («
-Trou-Trou » pour les dames), qui semblait en zinc, le beau comte de Valon, qui
-présidait aux chasses de la « Dussèche du Geste », le prince Stanislas de
-Poniatowsky (roi manqué de Pologne), appelé « le Roi », maquillé comme une
+appartenant. à des titres divers. à la plus « haute Bicherie ».  
+Alexandre Duval (dit « Godefroy de Bouillon »), le prince Troubetzkoï (« 
+Trou-Trou » pour les dames), qui semblait en zinc, le beau comte de Valon, qui
+présidait aux chasses de la « Dussèche du Geste », le prince Stanislas de
+Poniatowsky (roi manqué de Pologne), appelé « le Roi », maquillé comme une
 vieille coquette, teint et frisé au petit fer. Tous ces vieux beaux paradaient
 encore en se vantant de leurs conquêtes, promenaient de jolies filles auxquelles
 ils servaient bien plutôt à les lancer, à s’élever vers les premiers rangs de la
 galanterie.  
-Les peintres étaient là, nombreux, qui prenaient des croquis : Steinlen,
+Les peintres étaient là, nombreux, qui prenaient des croquis : Steinlen,
 Willette, Sinet, d’Espagnat, Léandre, Toulouse-Lautrec, Abel Truchet, de Feure,
 Marcel-Lenoir, Picasso, Zuloaga, Conder, Louis Legrand, Anquetin, Albert et
 Eugène Guillaume, et tant d’autres modernes qui ont percé depuis. Toutes sortes
 de notabilités de tous ordres y étaient présentes chaque soir.  
-Quelques fils de «hauts et puissants bourgeois » — dont certains furent très
+Quelques fils de « hauts et puissants bourgeois » — dont certains furent très
 près d’accrocher mon cœur — se disputaient le privilège d’oublier dans mes bras
 les mesquineries de la vie et ses vilains côtés matériels.  
 Ma parole, ils se croyaient de la poésie dans l’âme et se montraient choqués — ô
-combien  ! eux, les pourvus — que je dusse être dans la nécessité d’avoir à m’en
+combien ! eux, les pourvus — que je dusse être dans la nécessité d’avoir à m’en
 préoccuper.  
 Je me souviens d’un, qui, particulièrement, m’importunait et — pauvre
-présomptueux ! — m’offrait pour tout potage son amour, «seul capable de me
-réhabiliter »  !  
-L’insolent ! Il tombait bien !  
-Je n’en éprouvais nul besoin; j’étais heureuse, libre, et ne me considérais
+présomptueux ! — m’offrait pour tout potage son amour, « seul capable de me
+réhabiliter » !  
+L’insolent ! Il tombait bien !  
+Je n’en éprouvais nul besoin ; j’étais heureuse, libre, et ne me considérais
 aucunement comme déchue.  
-Il me poursuivit longtemps de ses importunes assiduités. Je ne l’appelais que «
-la gomme à effacer ».  
+Il me poursuivit longtemps de ses importunes assiduités. Je ne l’appelais que « 
+la gomme à effacer ».  
 Par ailleurs, je fus vraiment très aimée. J’ai aimé, moi aussi. Chaque fois
 différemment. A ce titre j’espère qu’il me sera beaucoup pardonné — malgré qu’au
 fond je ne m’en soucie guère.  
 Quand même, il me reste un souvenir précieux de mes amours, et je garde une
 réelle tendresse à ceux qui surent m’en inspirer.  
-Aucun, cependant, ne m’a été assez absolu pour que je lui sacrifie la Danse !
+Aucun, cependant, ne m’a été assez absolu pour que je lui sacrifie la Danse !
 simple_new_line
 
 Un compagnon charmant et précieux, très fin et combien romantique, habita mon
-cœur une longue saison. Il était un des nombreux bâtards de « Plon-Plon ».
+cœur une longue saison. Il était un des nombreux bâtards de « Plon-Plon ».
 simple_new_line
 
 Je n’étais pas moins romantique que lui — quoi qu’il y parût. Très entiché de
@@ -617,13 +617,13 @@ lui, et, peu à peu, lentement, tendrement, nous arrivâmes jusqu’à la fin du
 gentil amour qui s’éteignit doucement.  
 Tous les coins de la jolie forêt abritèrent nos baisers, et quelquefois nos
 larmes.  
-Souvenir délicieux et tendre de jeunesse, de fraîcheur et d’exquis sentiments !
+Souvenir délicieux et tendre de jeunesse, de fraîcheur et d’exquis sentiments !
 
 La mode était, en ce temps-là, de se montrer chaque jour, de quatre à sept
 heures, au bois de Boulogne. Une longue file d’équipages attelés de magnifiques
 chevaux suivait lentement l’allée des Acacias jusqu’à la Cascade, croisant ceux
-qui en revenaient, promenant tout le luxe de Paris. On appelait cela « faire son
-persil ».  
+qui en revenaient, promenant tout le luxe de Paris. On appelait cela « faire son
+persil ».  
 De belles hétaïres, nonchalamment, se prélassaient en des victorias garnies de
 fleurs, parées de sensationnelles toilettes.  
 Des mondaines de haut rang, curieuses, les dévisageaient. Des cavaliers à cheval
@@ -634,16 +634,16 @@ Une gentille camarade, enragée valseuse, Louisette de Senneville, qui rêvait d
 briller au Gotha demi-mondain, réussit à m’entraîner dans son sillage.
 simple_new_line
 
-Dans une « urbaine » louée au mois par elle, nous suivions toutes deux le
+Dans une « urbaine » louée au mois par elle, nous suivions toutes deux le
 cortège jusqu’à ce qu’enfin — à mon gré — arrivât l’heure du retour par l’avenue
 du Bois.  
-Place de la Concorde, devant le « club des Pannés », cette parade prenait fin et
+Place de la Concorde, devant le « club des Pannés », cette parade prenait fin et
 se disloquait.  
 Je me lassai tôt de cette fastidieuse exhibition, abandonnant ma compagne à ses
 hautes destinées. Je m’en retournai à ma pittoresque bohème si remplie de
-fantaisie. et surtout à la Danse !  
-Au cours de ces promenades aux « Acacias », la note comique était parfois
-fournie par un vieux couple, « le Pou et l’Araignée », qui, dans un véhicule
+fantaisie. et surtout à la Danse !  
+Au cours de ces promenades aux « Acacias », la note comique était parfois
+fournie par un vieux couple, « le Pou et l’Araignée », qui, dans un véhicule
 cahotant, prenait des attitudes grotesques et touchantes.  
 À d’autres fois, par l’apparition, dans l’allée cavalière, de Valentin le
 Désossé, le danseur, courtier en vins à ses heures, monté sur une haridelle
@@ -661,27 +661,27 @@ Les Boulevards, animés par une foule sans cesse renouvelée, étaient une des
 joies de Paris.  
 À partir du commencement de l’après-midi, on était assuré d’y rencontrer nombre
 de gens connus.  
-On y tenait parlote, on se promenait, on flânait et l’on « badaudait » en
+On y tenait parlote, on se promenait, on flânait et l’on « badaudait » en
 lorgnant les jolies femmes. Des professionnelles passaient, provocantes.
 simple_new_line
 
-Il y avait les « suiveurs », qui donnaient à rire parfois. Ils étaient
-d’ailleurs quelquefois bien ennuyeux !  
+Il y avait les « suiveurs », qui donnaient à rire parfois. Ils étaient
+d’ailleurs quelquefois bien ennuyeux !  
 J’avais adopté pour ma part deux méthodes pour m’en débarrasser lorsqu’ils
 devenaient trop entreprenants et m’adressaient la parole. D’un air le plus
-stupide possible, je répondais : « What do you say ? I don’t understand. »
+stupide possible, je répondais : « What do you say ? I don’t understand. »
 simple_new_line
 
-Vexés que je n’aie pas compris, et me croyant une « English », ils
+Vexés que je n’aie pas compris, et me croyant une « English », ils
 s’éloignaient, penauds, sans demander leur reste.  
 Ou bien je m’adressais à un agent, lui demandant la direction d’une rue proche,
-en [ponctuant] pointant mon doigt vers l’importun qui prenait aussitôt la «
-poudre d’escampette », croyant que je l’avais signalé !  
+en [ponctuant] pointant mon doigt vers l’importun qui prenait aussitôt la « 
+poudre d’escampette », croyant que je l’avais signalé !  
 À l’heure de l’apéritif, littérateurs, journalistes, publicistes et tous les
 gens de la presse, sans compter les gens de la Bourse, garnissaient les
 terrasses des cafés Cardinal, Napolitain, Tortoni, Riche, Maison Dorée (ces
-trois derniers sont remplacés par des chausseurs ou marchands de « perles de
-culture »).  
+trois derniers sont remplacés par des chausseurs ou marchands de « perles de
+culture »).  
 Les gens chic se retrouvaient à dîner chez Durand, chez Voisin, Larue, Joseph,
 au Café Anglais, chez Paillard, au Petit Lucas. Quelques-uns franchissaient les
 ponts pour se rejoindre aux restaurants Foyot, Lavenue ou Lapérouse.
@@ -716,7 +716,7 @@ peu. Les cabarets du Ciel, de L’Enfer, du Néant, tous ceux de la Butte, La Va
 Enragée, que sais-je encore, regorgeaient de visiteurs curieux de s’encanailler.
 simple_new_line
 
-On appelait cela «faire la tournée des grands-ducs ».  
+On appelait cela « faire la tournée des grands-ducs ».  
 Autour de l’Opéra, de minuscules boutiques montraient dans leurs vitrines des
 bouteilles de champagne… et dans l’arrière-fond on vendait des gants. Des vieux
 messieurs les visitaient la journée, qui se faisaient mettre ces gants par de
@@ -734,12 +734,12 @@ nombreux arrêts. Qu’ils mettaient longtemps à nous mener à destination.
 
 Il fallait s’armer d’une dose de patience, rarement récompensée, pour en prendre
 un aux stations de son lent parcours.  
-Cependant, les « impériales » étaient bien agréables en été, bien qu’aux
-stations il y eût toujours quelques vieux polissons postés en permanence pour «
-reluquer » les mollets des femmes lorsqu’elles y grimpaient.  
+Cependant, les « impériales » étaient bien agréables en été, bien qu’aux
+stations il y eût toujours quelques vieux polissons postés en permanence pour « 
+reluquer » les mollets des femmes lorsqu’elles y grimpaient.  
 Cette attente leur a été évitée depuis qu’elles les laissent voir, épargnant aux
 voyeurs un fâcheux torticolis.  
-À la station « Italiens », pendant des années, le même bonhomme aux yeux
+À la station « Italiens », pendant des années, le même bonhomme aux yeux
 malsains, couleur d’absinthe délavée, se tint en observation.  
 Heureusement nos frous-frous de dentelles dissimulaient assez bien ce qui devait
 être tenu secret.
@@ -749,19 +749,19 @@ j’acceptai enfin d’être rémunérée.
 Je n’y trouvais pas mon plaisir accoutumé. Il me fallait offrir aux spectateurs
 les pas que je dansais…  
 J’avais un peu la sensation d’être servile en m’appliquant à plaire. Aussi,
-comme je me dédommageai aux accords entraînants des valses !  
+comme je me dédommageai aux accords entraînants des valses !  
 Chères adorables valses, aux rythmes berceurs, langoureux, voluptueux ou
-tristes, qui m’avez tant de fois grisée et ne m’avez jamais déçue !
+tristes, qui m’avez tant de fois grisée et ne m’avez jamais déçue !
 simple_new_line
 
 Métra, Desormes, Strauss, Waldteufel qui m’inspiriez, que je vous dois de chers
-instants ! Sollicitée de tous côtés d’aller poser chez peintres, sculpteurs,
+instants ! Sollicitée de tous côtés d’aller poser chez peintres, sculpteurs,
 dessinateurs et photographes, je promettais toujours mais n’y allais jamais.
-C’est qu’on n’était guère pratique en ces temps héroïques ! Pour moi, je
+C’est qu’on n’était guère pratique en ces temps héroïques ! Pour moi, je
 négligeais toute publicité. Il m’est arrivé de rejeter toutes ces images que
 l’on voulait faire de moi. Elles me rappelleraient à présent, mieux que mes
 souvenirs intimes, ma folle mais tout de même jolie jeunesse.  
-Priée d’aller danser dans le premier « studio » de cinéma, où j’aurais été
+Priée d’aller danser dans le premier « studio » de cinéma, où j’aurais été
 filmée, je négligeai de m’y rendre.  
 Il m’amuserait maintenant de me voir ainsi.  
 De Toulouse-Lautrec, génial infirme — dont la gouaille spirituelle et mordante
@@ -769,7 +769,7 @@ devait lui aider à masquer une profonde mélancolie —, venait me prendre chez
 afin d’être certain de m’avoir dans son atelier.  
 Il m’emmenait auparavant déjeuner chez Bainiu ou chez Le Père Lathuile (cabarets
 fameux, maintenant disparus), où l’on dégustait des spécialités renommées
-arrosées d’un petit saint-nicolas-de-bourgueil dont je ne vous dis qu’ ça !
+arrosées d’un petit saint-nicolas-de-bourgueil dont je ne vous dis qu’ ça !
 simple_new_line
 
 Chez lui se retrouvaient de nombreux et sincères amis, admirateurs fervents de
@@ -786,7 +786,7 @@ J’ai possédé mon portrait par Renoir, dont Teodor de Wyzewa, son ami, me fit
 présent, et tant d’autres chers tableaux, dont un Daumier, des pastels gouachés
 de Forain, un Guillemet et de lumineux Picasso.  
 Cazin m’avait priée d’en choisir un parmi ses œuvres…  
-En quels lieux tous ces précieux souvenirs se baladent-ils à l’heure présente ?
+En quels lieux tous ces précieux souvenirs se baladent-ils à l’heure présente ?
 simple_new_line
 
 J’en ai abandonné quelques-uns aux mains d’un homme que je m’apprêtais à aimer,
@@ -796,32 +796,32 @@ mon portrait chez Renoir pour le prier de bien vouloir le signer.
 simple_new_line
 
 Ce qui est du plus haut comique, c’est que le maître — soupçonnant sans doute
-quelque « combine » — le flanqua dehors avec tous les honneurs dus à son rang,
-disant que cette « horreur » n’était pas de lui.  
-Et allez donc  ! Ça c’est tapé.  
+quelque « combine » — le flanqua dehors avec tous les honneurs dus à son rang,
+disant que cette « horreur » n’était pas de lui.  
+Et allez donc ! Ça c’est tapé.  
 Affligée de bien encombrants scrupules bourgeois, je me vis obligée, pour faire
 face à des échéances, de me séparer d’œuvres que j’aimais, en les bazardant dans
 de piètres conditions.  
 Libre, vivant comme un garçon, j’ai eu toujours à cœur de faire honneur à ma
 parole aussi bien qu’à ma signature, et j’ai la faiblesse de m’en enorgueillir.
 Bien qu’il n’y ait pas lieu présentement d’être fière d’appartenir à la
-catégorie des « cochons de payants ».
+catégorie des « cochons de payants ».
 
 Vers ce temps-là, je fis partie d’une joyeuse bande d’aimables et chic garçons
 dont les agapes se donnaient le plus souvent à Bougival, Rueil, Croissy, Chatou,
 Louveciennes, Saint-Cucufa, La Malmaison.  
 On s’y livrait au plaisir du canotage, fort à la mode en ces temps lointains,
-abandonnant la Marne aux « calicots ».  
+abandonnant la Marne aux « calicots ».  
 Que de charmantes escapades en tous ces riants endroits, et combien de gais
-déjeuners champêtres chez Fournaise ou bien à La Grenouillère !  
+déjeuners champêtres chez Fournaise ou bien à La Grenouillère !  
 Que de rires et de chansons, et que nous avons fait de farces au gardien du
-dernier pont à péage, que nous aimions à faire enrager !  
+dernier pont à péage, que nous aimions à faire enrager !  
 Heureux temps I  
 En me recueillant, je les revois et me les rappelle tous encore…
 simple_new_line
 
 Ed. Dit… de Neuv…, Tourgue…, Négr…, Zam…, Tseng…, Mado…, Le Pl…, Nauffl…, P…
-Gail… et C. Baugn…, qui me donna ma première leçon de « barreuse » au cours d’un
+Gail… et C. Baugn…, qui me donna ma première leçon de « barreuse » au cours d’un
 joli voyage en yole que nous fîmes jusqu’à Rouen à bord de l’Arlequin, avec
 escales dans les plus jolis sites, entre autres Le Petit-Andely, si pittoresque
 au bord de la Seine toute parsemée d’îles à l’ombre du château Gaillard, où tant
@@ -830,35 +830,35 @@ simple_new_line
 
 J’eus même l’agréable surprise d’y revoir, bien longtemps après, mon ancien
 professeur de barrage venu m’y offrir un plantureux déjeuner, auquel fut
-consacrée la somme que sa maman l’avait chargé d’aller verser à la « Ligue
-contre la licence des rues » ...  
+consacrée la somme que sa maman l’avait chargé d’aller verser à la « Ligue
+contre la licence des rues » ...  
 
 Puis je découvris le Chat Noir, où m’introduisit le spirituel humoriste — et si
-normand ! — Alphonse Allais.  
+normand ! — Alphonse Allais.  
 J’en devins bientôt la commensale attitrée. Raoul Ponchon, Léopold Stevens et
-Paul Robert s’intitulèrent tout de suite mes « trois mousquetaires ».
+Paul Robert s’intitulèrent tout de suite mes « trois mousquetaires ».
 simple_new_line
 
 Des habitués du célèbre cabaret, nombreux étaient ceux qui s’y retrouvaient
 chaque soir. Emile Goudeau, Charles de Sivry, Caran d’Ache, Henri Rivière,
 Claude Debussy, Willette, Jules Lemaître, Jules Jouy, de Favre, George Auriol,
 Lucien Descaves, Montoya, Paul Delmet, Louise France, Rachilde, les lsabey,
-Lugné-Poe, Rodenbach, et le famélique Pierre Trimouillat qui chantait :
+Lugné-Poe, Rodenbach, et le famélique Pierre Trimouillat qui chantait :
 
 > Que ça n’était jamais la même,  
-  à son septième !  
+  à son septième !  
   et que l’on n’a pas d’entregent  
-  lorsqu’on manque d’argent !
+  lorsqu’on manque d’argent !
 
 Et encore tant d’autres… Marcel Legay, Edmond Haraucourt, Henry Somm, Abel
 Hermant, Alcanter de Brahm, Fragerolle, Leon Gandillot, G[eorges] Charpentier,
 Goudeski, Fasquelle, Anquetin, Desboutins, Vincent Hyspa, Dominique Bonnaud,
 Romain Coolus, Lunel, Laumann, Maurice Talmeyr, Jeanne Marni, Marguerite Moreno,
 Couyba, Jacques Ferny, Maurice Montégut, Le Pelletier, Suzanne Desprès, Jules
-Roques, Jules Lévy, Maurice Donnay — qui me nomma « la dernière grisette » —,
+Roques, Jules Lévy, Maurice Donnay — qui me nomma « la dernière grisette » —,
 sans oublier Breittmayer, de Bruchard, le marquis de Morès, arbitre de tous les
-duels fréquents à cette époque, Jules Guérin, du « Fort-Chabrol », et le «
-docteur » Pelet — « Ça, c’est quelqu’un ! ».  
+duels fréquents à cette époque, Jules Guérin, du « Fort-Chabrol », et le « 
+docteur » Pelet — « Ça, c’est quelqu’un ! ».  
 Salis, le patron — figure de reître roux —, portait beau avec son allure de
 spadassin bretteur, digne du crayon de Robida, et qu’a si bien représenté
 Léandre.  
@@ -866,36 +866,36 @@ Un public de choix — le Tout-Paris des premières — se pressait chaque soir 
 la salle du petit théâtre d’ombres installé au premier étage de l’hôtel.
 simple_new_line
 
-Princes, personnages officiels, magistrats, ministres et « tutti quanti ». Je
+Princes, personnages officiels, magistrats, ministres et « tutti quanti ». Je
 crois savoir qu’on y vit un soir Édouard Vll, alors prince de Galles.
 simple_new_line
 
-Salis faisait le « boniment », présentant les artistes avec force commentaires,
+Salis faisait le « boniment », présentant les artistes avec force commentaires,
 agrémentés d’allusions drolatiques aux faits ou scandales du moment, de même
 qu’aux notabilités présentes.  
-Il n’épargnait rien ni personne, lançant ses « lazzis » avec tant d’esprit que
+Il n’épargnait rien ni personne, lançant ses « lazzis » avec tant d’esprit que
 nul n’aurait su s’en fâcher de Messeigneurs et gentes Dames qui, eux-mêmes,
-faisaient « chorus », et l’on peut affirmer que le rire y était de rigueur.
+faisaient « chorus », et l’on peut affirmer que le rire y était de rigueur.
 simple_new_line
 
 J’étais tour à tour, et selon chacun des hôtes de Salis, le petit Tanagra, la
 petite chérie ou le petit Botticelli de la maison, Guéneau de Mussy me découvrit
-même un petit air mérovingien !  
+même un petit air mérovingien !  
 J’étais avant tout le petit copain de tous, et une amie anglaise, May Milton,
 que j’y amenai, fut agréée, que l’on nomma Missaussi.  
 Nous nous réunissions presque chaque soir pour y dîner, comme une grande
 famille, assaisonnant les mets — et sans compter — du sel de l’esprit de chacun,
 servis par des garçons costumés en académiciens.  
-On y devisait de tous les sujets, les plus joyeux propos s’y échangeaient : le «
-pain de manège » y était à discrétion.  
-Quelle tablée, messeigneurs ! dans ce plaisant décor gothique, orné d’œuvres
+On y devisait de tous les sujets, les plus joyeux propos s’y échangeaient : le « 
+pain de manège » y était à discrétion.  
+Quelle tablée, messeigneurs ! dans ce plaisant décor gothique, orné d’œuvres
 innombrables, qui doivent à l’heure actuelle avoir atteint des prix
 astronomiques.  
 Je me plaisais si bien au milieu de ces êtres charmants qui dépensaient tant
-d’esprit, « le jetant gratis par les fenêtres », que je finis, m’a-t-on dit, par
+d’esprit, « le jetant gratis par les fenêtres », que je finis, m’a-t-on dit, par
 en avoir un peu moi aussi.  
 Le plus curieux — dont je m’étonne encore — est que je comprenais, ou plus
-exactement, je sentais tout ce dont on y traitait ; m’assimilant les sujets les
+exactement, je sentais tout ce dont on y traitait ; m’assimilant les sujets les
 plus divers, aucun ne me paraissait inconnu.  
 Comme si j’avais déjà entendu tout cela dans un monde antérieur.
 simple_new_line
@@ -903,60 +903,60 @@ simple_new_line
 J’y improvisai quelques danses accompagnées au piano par le si talentueux
 Charles de Sivry, Martinetti, virtuose du violoncelle, et des premiers violons,
 tous des as du Conservatoire.  
-Beaucoup de ces artistes de valeur, aux talents si divers, ont hélas disparu ;
+Beaucoup de ces artistes de valeur, aux talents si divers, ont hélas disparu ;
 ceux qui demeurent encore ont tous fait leur chemin et atteint les sommets de la
 notoriété et de la gloire.  
-Nous nous retrouvions au théâtre ou dans un café à nous réservés ; chacun des
+Nous nous retrouvions au théâtre ou dans un café à nous réservés ; chacun des
 artistes attendait son tour de faire apprécier son talent en présentant ses
 œuvres originales et personnelles — ne se faisant pas faute de blaguer aussi
-bien que d’applaudir le camarade en train de « débiter sa salade ».
+bien que d’applaudir le camarade en train de « débiter sa salade ».
 simple_new_line
 
 Quels moments inoubliables j’ai passés là I C’est une jolie période de ma vie
 heureuse dont je reste tout imprégnée.  
 Alphonse Allais, bien qu’humoriste, n’en était pas moins sentimental à ses
 heures.  
-Se mit-il pas en tête de m’épouser !  
+Se mit-il pas en tête de m’épouser !  
 Ç’aurait été un bien cocasse ménage.  
 Comme je me refusai à accepter sa proposition, il s’en manqua de peu qu’un drame
 en résultât, une nuit qu’il me poursuivait dans l’avenue Trudaine.
 simple_new_line
 
 Moitié riant, moitié pleurant, il brandissait un revolver dont il nous destinait
-les balles. Vous voyez ça d’ici !  
+les balles. Vous voyez ça d’ici !  
 J’eus quelque difficulté à l’apaiser, d’autant que les liqueurs de Salis ne
 devaient pas être étrangères à son état d’exaltation, dont lui-même se blagua
 par la suite.  
 
 Édouard Dujardin, wagnérien, poète et sportif, qui fit en ce temps-là
-représenter une pièce symbol[iste] en vers libres, toute parsemée de « Floramyes
-», m’offrit l’« invitation au voyage », se proposant de combler mes caprices. Il
+représenter une pièce symbol[iste] en vers libres, toute parsemée de « Floramyes
+ », m’offrit l’« invitation au voyage », se proposant de combler mes caprices. Il
 n’aurait pas hésité à me conduire au bout du monde si j’en avais exprimé le
 désir…  
 Je me décidai, tout simplement pour Bruxelles, car je savais retrouver la troupe
 du Chat Noir en représentation dans cette ville.  
-Nous surprîmes ces enfants terribles en train de tout « chambarder » au musée
+Nous surprîmes ces enfants terribles en train de tout « chambarder » au musée
 Gastan — équivalent de notre musée Grévin.  
 Le chef du bon roi Léopold s’adornait du chapeau melon de Pranzini, Gabrielle
 Bompard était coiffée du bonnet de Marie-Antoinette, le pape portait le bicorne
-du brav’ général Boulanger, et tout à l’avenant !  
+du brav’ général Boulanger, et tout à l’avenant !  
 Le pauvre gardien qui n’en pouvait mais… se lamentait, éperdu, en levant les
-bras, courant après tous ces farceurs… « Allaïe, allaïe, arrêtez I Tu vas me
-faire pour une fois, saïes-tu. engueuler. »  
+bras, courant après tous ces farceurs… « Allaïe, allaïe, arrêtez I Tu vas me
+faire pour une fois, saïes-tu. engueuler. »  
 Le pauvre Dujardin, qui ne m’avait pas emmenée pour nous joindre à eux, faisait
 contre mauvaise fortune bon cœur…  
-Comme d’autre part, je m’étais souvenue que je lui devais « un chien de ma
-chienne » à cause d’une histoire ancienne, je résolus de ne pas pousser plus
+Comme d’autre part, je m’étais souvenue que je lui devais « un chien de ma
+chienne » à cause d’une histoire ancienne, je résolus de ne pas pousser plus
 avant notre équipée — malgré ses offres réitérées de me doter avant de nous
 marier…  
-Nous réintégrâmes donc la capitale ; après quoi — le sachant épris d’anglomanie
+Nous réintégrâmes donc la capitale ; après quoi — le sachant épris d’anglomanie
 —, je le persuadai de protéger Missaussi, fort mal en point dans ses affaires à
 cette époque…  
 
 Face à l’hôtel du Chat Noir existait un cercle, formé de deux appartements
 réunis en un seul. Il avait été fondé par Charles Desteuques, maire de Reims,
 surnommé l’lntrépide Vide-Bouteilles pour ce qu’il ne pouvait plus boire que de
-l’eau de Vichy ; il en était le président, en même temps que rédacteur du Gil
+l’eau de Vichy ; il en était le président, en même temps que rédacteur du Gil
 Blas. Ce journal soi-disant mondain, dont les échos étaient avant tout consacrés
 à la Haute Bicherie, demis et quarts de mondaines. Charles Chincholle, Armand
 Silvestre, Albert Guillaume, Grosclaude, Mermeix, de Maugis, Catulle Mendès,
@@ -968,34 +968,34 @@ Chaque dimanche soir y étaient organisés, dans une immense salle, des dîners
 bruyants auxquels assistaient les types les plus variés appartenant à tous les
 genres du monde.  
 Le père Zidler, armé d’une immense louche, distribuait le potage aux gens de
-lettres, cercleux, sportsmen, artistes « dans le train » de tous genres et
+lettres, cercleux, sportsmen, artistes « dans le train » de tous genres et
 toutes catégories.  
 Les théâtreuses, midinettes, humbles péripatéticiennes, courtisanes chevronnées,
-femmes du monde en «rupture » (« demi-castors ») en étaient les hôtes habituels;
+femmes du monde en « rupture » (« demi-castors ») en étaient les hôtes habituels ;
 ces dernières belles empanachées scintillaient de tous les feux de leurs
 diamants.  
-Le petit Lebaudy (« Petit Sucrier ») y dépensait son langage de lad — son frère
-s’était lui-même couronné « empereur du Sahara » et avait défrayé la chronique
+Le petit Lebaudy (« Petit Sucrier ») y dépensait son langage de lad — son frère
+s’était lui-même couronné « empereur du Sahara » et avait défrayé la chronique
 pour ses scandales, ses excentricités ainsi que ses millions.  
-Cléo de Mérode, figée dans sa beauté « noblesse oblige », Émilienne d’Alençon au
+Cléo de Mérode, figée dans sa beauté « noblesse oblige », Émilienne d’Alençon au
 délicieux visage de baby anglais — toutes deux favorites royales —, la Belle
 Otéro avec son profil de dame de pique, Adèle Richer, étincelante, Chéret au
-rire de bacchante, l’endiablée Miss Campton, Lina Cavalieri, si ravissante !
+rire de bacchante, l’endiablée Miss Campton, Lina Cavalieri, si ravissante !
 Liane de Pougy, toute de charme onduleux, Margot de Gevers aux somptueuses
-dentelles, Mathilde Castera (« le Petit Duc »), Alice Aubrey, Alice de Brémond,
+dentelles, Mathilde Castera (« le Petit Duc »), Alice Aubrey, Alice de Brémond,
 blonde comme les blés mûrs, jolie, rieuse, fraîche comme un clair printemps,
 Georgette Villais qui fut marquise et s’en lassa. Demarsy, Edwards et la jolie
 Lantelme, Cécile Sorel, avant la Comédie-Française, Mlle de Sombreuil,
 l’éternelle expulsée, connue pour ses scandales et voies de fait sur des hommes
 politiques, et quantité de comparses dont je fus parfois.  
-C’était une véritable potinière du monde galant !  
+C’était une véritable potinière du monde galant !  
 Chacune avait son chic personnel, sa silhouette ne ressemblant à aucune autre,
-et cela vous avait une certaine allure  !  
+et cela vous avait une certaine allure !  
 L’uniformité des modes récentes, qui heureusement tend à disparaître, fait
 paraître toutes les femmes semblablement gentilles, mais aucune ne se détache de
 la foule.  
 
-— Toi ! me disait Desteuques — qui devait s’y connaître —, tu n’arriveras jamais
+— Toi ! me disait Desteuques — qui devait s’y connaître —, tu n’arriveras jamais
 à rien, il te suffit d’une chaumière et d’un cœur.
 
 Cette prévision me chagrinait si peu qu’à peine la fin du repas je m’éclipsais
@@ -1004,7 +1004,7 @@ fins de la fête. J’avais entendu et cru comprendre qu’il s’y passait cert
 choses pour lesquelles je ne me sentais aucun goût.  
 Plusieurs des plus belles et des plus lancées me prièrent de me rendre chez
 elles, où je ne me rendis jamais.  
-Bonnes âmes, elles s’offraient à me lancer !  
+Bonnes âmes, elles s’offraient à me lancer !  
 J’échappai de même aux tentations et aux dangers où s’essayèrent à m’entraîner
 de pauvres détraquées qui se livraient, déjà, à l’usage de stupéfiants.
 simple_new_line
@@ -1018,9 +1018,9 @@ Environ à la même époque, je retrouvai un soir, avec une joie réelle, l’é
 Max Muller, secrétaire d’ambassade de la reine Victoria, que j’avais jadis connu
 au Quartier latin.  
 Quel impeccable danseur il était, et que de bostons éperdus nous avons ensemble
-glissés dans mon cher Moulin  !  
-Et que l’on ne me parle pas de la froideur des Anglais ! En quelle ignorance
-sont ceux de chez nous qui les critiquent  !  
+glissés dans mon cher Moulin !  
+Et que l’on ne me parle pas de la froideur des Anglais ! En quelle ignorance
+sont ceux de chez nous qui les critiquent !  
 Chaque pays aime à se moquer des petits travers ou défauts qu’il prête aux
 autres en omettant souvent de reconnaître leurs qualités.  
 Pour moi qui ne fais pas de politique, je puis bien reconnaître que j’eus toutes
@@ -1031,8 +1031,8 @@ aime, et pour elle il ne trouve rien de trop beau. Il a vraiment le culte de la
 femme, il n’est pas de si petites attentions dont il ne soit capable pour la
 voir heureuse de se sentir aimée. Tout cela sans ostentation, de façon élégante
 et discrète.  
-Il ne s’extériorise pas en public, gardant la pudeur de ses sentiments ; il n’en
-cultive pas moins la «petite fleur bleue », quoi qu’on en pense; il est tendre
+Il ne s’extériorise pas en public, gardant la pudeur de ses sentiments ; il n’en
+cultive pas moins la « petite fleur bleue », quoi qu’on en pense ; il est tendre
 et loyal.  
 De plus, il garde pour celle qui occupa son cœur, et malgré le temps écoulé, le
 souvenir de leurs amours passées en lui continuant son amitié, sa sollicitude et
@@ -1044,39 +1044,39 @@ se trouve actuellement le Petit Palais.
 C’était un lieu de plaisir où se rencontraient toutes les élégances.
 simple_new_line
 
-Que de folles et brillantes soirées j’ai passées là ! et quelles jolies
+Que de folles et brillantes soirées j’ai passées là ! et quelles jolies
 chambrées l  
-La plus belle société y fréquentait. Les cercles les plus « select » : le Jockey
+La plus belle société y fréquentait. Les cercles les plus « select » : le Jockey
 [Club], l’Union, l’Épatant, la Pomme de Terre (Cercle Agricole) y étaient
 représentés par un grand nombre de leurs membres chaque soir.  
 Marquis de Vogüé, Jean de Berteux, marquis de Pommereul, comte de
 Sabran-Pontevès, marquis de Lillers, Willy Mackenzie, marquis de Nicolaÿ, Gordon
-Bennett, les Rothschild, les Blanche, Max Muller et des tas de « grosses légumes
-», qui se faisaient un plaisir d’offrir à la petite Avril — leur gavroche
+Bennett, les Rothschild, les Blanche, Max Muller et des tas de « grosses légumes
+ », qui se faisaient un plaisir d’offrir à la petite Avril — leur gavroche
 parisien, comme ils m’appelaient — fleurs, bonbons ou fanfreluches, après
 m’avoir applaudie dans mes danses.
 
-Je me rappelle un soir de Grand Steeple ; j’étais au bras de l’honorable C.
+Je me rappelle un soir de Grand Steeple ; j’étais au bras de l’honorable C.
 How[ied] qui me protégeait alors, nous vîmes un groupe de gentlemen tout à fait
 high-life au milieu desquels le plus parisien des Anglais, Édouard, prince de
 Galles.  
 Zidler se démenait, ayant imaginé de lui présenter la Goulue, escomptant par
-avance la « drôlerie » qui en devait résulter étant donné le langage plus
+avance la « drôlerie » qui en devait résulter étant donné le langage plus
 qu’imagé de celle-ci.  
 Or cette dernière —  renseignée sans doute par un indiscret sur la haute
 personnalité du prince — resta devant lui stupide et intimidée, ce qui n’était
 pourtant pas dans sa manière, et ne put articuler la moindre parole.
 simple_new_line
 
-L’effet était raté ! Dommage  !  
+L’effet était raté ! Dommage !  
 Le poète Catulle Mendès et son amie d’alors insistaient à toute force pour que
 j’aille déjeuner chez eux. Un soir où j’acceptai qu’ils me conduisent en fiacre
 jusqu’à ma porte, j’eus, en cours de route. à le regretter, car tous deux se
 mirent à me caresser de façon plus que tendre…  
 Or, ne voulant pas les fâcher non plus que laisser faire, je m’en tirai en leur
 promettant ma visite pour le lendemain.  
-Un « petit bleu » m’y remplaça, dans lequel je me récusais.  
-Les fêtes païennes ne me disaient rien qui vaille !
+Un « petit bleu » m’y remplaça, dans lequel je me récusais.  
+Les fêtes païennes ne me disaient rien qui vaille !
 
 Beaucoup des prêtresses de Cythère, et non des moindres, officiaient à Lesbos.
 simple_new_line
@@ -1092,61 +1092,61 @@ Toutes ensemble allégeaient leur cœur, se contant les amertumes de leur négoc
 ou se glorifiant de leurs ruses et de leurs succès, en même temps qu’elles
 échangeaient des caresses en se bécotant.  
 Elles faisaient assaut de dépenses afin de s’épater mutuellement. ce qui
-remplissait la caisse de la « patronne ».  
+remplissait la caisse de la « patronne ».  
 C’était la boîte aux confidences, débinages ou vantardises. Elles s’y
 délassaient des obligations auxquelles tenait leur luxe, très à l’aise
 s’embrassaient et papotaient.  
 Le vrai roman chez la portière.  
 Une brasserie, rue Bréda, vivait de la même clientèle, tenue par un ménage de
 deux vieilles et grosses commères.  
-L’une d’elles ne manquait pas d’un certain « bagout » qui amusait fort les
+L’une d’elles ne manquait pas d’un certain « bagout » qui amusait fort les
 auditrices.  
 Une chanteuse comique en vogue, Andrée Philip, qui vivait en ménage féminin,
-monta une « boîte » du même genre aux environs de la place d’Anvers, Le
+monta une « boîte » du même genre aux environs de la place d’Anvers, Le
 Scarabée, à cette différence près que les pensionnaires de l’établissement
 appartenaient au sexe soi-disant fort.  
-Elle m’invitait souvent à lui rendre visite, par curiosité ; je m’y rendis un
+Elle m’invitait souvent à lui rendre visite, par curiosité ; je m’y rendis un
 jour en compagnie d’une camarade, et nous vîmes un bien curieux et lamentable
 spectacle.  
 La pauvre, tout échevelée, était couchée malade sur un pauvre lit — seul meuble
 restant dans la maison où, la nuit précédente, une descente de police avait été
 effectuée.  
 La pauvre se lamentait, car sa compagne avait été, ainsi que leurs
-pensionnaires, emmenée dans le « panier à salade » pour le Dépôt.
+pensionnaires, emmenée dans le « panier à salade » pour le Dépôt.
 simple_new_line
 
-Les mœurs spéciales, pratiquées jusque-là seulement « sous le manteau »,
-commençaient à s’étaler et à être « bien portées ».  
-Un genre de snobisme parmi les « usagers » voulait qu’elles fussent considérées
+Les mœurs spéciales, pratiquées jusque-là seulement « sous le manteau »,
+commençaient à s’étaler et à être « bien portées ».  
+Un genre de snobisme parmi les « usagers » voulait qu’elles fussent considérées
 comme étant l’apanage réservé aux seuls esprits supérieurs et distingués.
 simple_new_line
 
 Les éphèbes professionnels s’étaient affublés des noms portés par les reines de
-la haute galanterie. La « Bobette » avait ses cheveux décolorés, se fardait
-lorsque entrait un client et faisait des mines, la « d’Alençon » faisait des
-grâces accompagnées de « Dieu de Dieu, ma chère ! », la « Pougy » se disait
+la haute galanterie. La « Bobette » avait ses cheveux décolorés, se fardait
+lorsque entrait un client et faisait des mines, la « d’Alençon » faisait des
+grâces accompagnées de « Dieu de Dieu, ma chère ! », la « Pougy » se disait
 modiste. Tous se livraient à de simiesques simagrées provocantes. L’un d’eux
-qui, paraît-il, me ressemblait, se faisait appeler Jane Avril ! Quel honneur !
-pour ne pas dire quelle honte !  
+qui, paraît-il, me ressemblait, se faisait appeler Jane Avril ! Quel honneur !
+pour ne pas dire quelle honte !  
 Tous ces jeunes invertis faisaient les délices de riches et titrés amateurs. Ils
 organisaient plusieurs fois l’an des bals costumés pour lesquels, longtemps à
 l’avance, on s’arrachait les entrées.  
-Il fallait pour y assister montrer « patte blanche ».  
+Il fallait pour y assister montrer « patte blanche ».  
 La police pourchassait bien de temps à autre tout ce joli monde, mais allez donc
-endiguer le flot montant d’une mode !  
+endiguer le flot montant d’une mode !  
 Et dire qu’au regard de ce qui se pratique actuellement, tout cela n’était
 encore que de l’eau de rose — s’il est vrai, d’après ce que j’entends, qu’aucun
 de ces genres de sport n’est aujourd’hui prohibé.  
-Et l’amour dans tout ça ? Il doit tout de même bien, j’espère, en exister encore
-!
+Et l’amour dans tout ça ? Il doit tout de même bien, j’espère, en exister encore
+ !
 
 Entre l’avenue des Champs-Élysées et l’avenue Gabriel existaient deux
-cafés-concerts à succès : Les Ambassadeurs et L’Alcazar d’Été.  
+cafés-concerts à succès : Les Ambassadeurs et L’Alcazar d’Été.  
 Quelque température qu’il fît, la tradition voulait qu’ils ouvrissent le jour de
 Pâques.  
-Il arrivait souvent qu’il fît encore froid à cette date ; je revois encore une
+Il arrivait souvent qu’il fît encore froid à cette date ; je revois encore une
 demi-douzaine de chanteuses débutantes qui, au lever du rideau, étaient assises
-« en corbeille », et se levaient à tour de rôle pour débiter « leur salade » en
+« en corbeille », et se levaient à tour de rôle pour débiter « leur salade » en
 attendant que, devant le grand public, se produisissent les étoiles de la
 troupe.  
 Elles faisaient peine à voir, les pauvres, vêtues de robes légères et
@@ -1156,21 +1156,21 @@ On ne pensait même pas à les applaudir et l’on ne savait que les plaindre.
 simple_new_line
 
 Enfin, en deuxième partie, on voyait apparaître les vedettes, qui étaient, en ce
-temps-là, Paula Brébion, roucoulante ; Florence Duparc, débitant finement les
-pires polissonneries sans avoir l’air « d’y toucher» ; Camille Stéfani, bonne
-diseuse, qui briguait les lauriers de la Grande Yvette ; Valti, la gommeuse
-(déesse des potaches), aux toilettes sensationnelles ; Nini Buffet, en «
-pierreuse » ; Eugénie Fougère, trépidante ; Nadia-la-Belle ; Marguerite Duclerc,
-excentrique et endiablée ; la jolie Lise Fleuron, genre ingénu ; Méaly ;
-Paulette Darty, qui chantait des valses célèbres ; la grosse Jeanne Bloch,
-comique populaire et naturaliste ; Louise Balthy, qui rappelait la célèbre
-Thérésa ; Anna Thibaud, bien disante ; Polaire, à la taille de guêpe, au masque
-étrange de « Vamp » ; Esther Lekain, distinguée ; et combien d’autres,
+temps-là, Paula Brébion, roucoulante ; Florence Duparc, débitant finement les
+pires polissonneries sans avoir l’air « d’y toucher » ; Camille Stéfani, bonne
+diseuse, qui briguait les lauriers de la Grande Yvette ; Valti, la gommeuse
+(déesse des potaches), aux toilettes sensationnelles ; Nini Buffet, en « 
+pierreuse » ; Eugénie Fougère, trépidante ; Nadia-la-Belle ; Marguerite Duclerc,
+excentrique et endiablée ; la jolie Lise Fleuron, genre ingénu ; Méaly ;
+Paulette Darty, qui chantait des valses célèbres ; la grosse Jeanne Bloch,
+comique populaire et naturaliste ; Louise Balthy, qui rappelait la célèbre
+Thérésa ; Anna Thibaud, bien disante ; Polaire, à la taille de guêpe, au masque
+étrange de « Vamp » ; Esther Lekain, distinguée ; et combien d’autres,
 affriolantes, qui firent courir tout Paris l  
-Côté hommes, Kam-Hill, en habit rouge, qui rendit célèbre la chanson du « Pendu
-» de Mac-Nab ; Plébins ; Vilbert ; Dufleuve ; Caudieux ; Sulbac ; Dorfeuil ; le
+Côté hommes, Kam-Hill, en habit rouge, qui rendit célèbre la chanson du « Pendu
+ » de Mac-Nab ; Plébins ; Vilbert ; Dufleuve ; Caudieux ; Sulbac ; Dorfeuil ; le
 célèbre Paulus, qui régna sur le caf’conc’, connut pendant des années les plus
-grands succès, et dont tout le monde fredonnait les ritournelles ; et le fin
+grands succès, et dont tout le monde fredonnait les ritournelles ; et le fin
 tourlourou Polin.  
 J’en passe, et des meilleurs, qui ont chanté des refrains, lesquels ont fait le
 tour du monde.  
@@ -1179,12 +1179,12 @@ deux précédents. Yvette Guilbert y remporta les premiers succès de sa brillan
 carrière sous la direction du couple Debasta, qui créa par la suite Parisiana
 sur les Boulevards.  
 C’était vraiment une époque charmante. Paris attirait tous les étrangers, il y
-faisait bon vivre, il y régnait un « chic » inconnu partout ailleurs, une
-élégance incomparable !  
+faisait bon vivre, il y régnait un « chic » inconnu partout ailleurs, une
+élégance incomparable !  
 Il y avait de la poésie dans l’air, ce n’était partout que chansons, on avait le
 temps d’aimer et d’être heureux.  
 Pour autant que je me la rappelle, elle est restée dans mon souvenir comme la
-plus belle que j’ai vécue, heureuse, insouciante et choyée !  
+plus belle que j’ai vécue, heureuse, insouciante et choyée !  
 J’étais en pleine forme et me dépensais sans souci de l’avenir, dansant comme
 une perdue au Jardin de Paris, l’été, et au Moulin-Rouge, pendant la froide
 saison.  
@@ -1201,7 +1201,7 @@ praticien, démarcha pour me faire entrer à Villepinte — maison de santé dir
 par des religieuses où l’on soignait principalement les maux de poitrine — et
 réussit à m’y faire entrer.  
 Dès après son départ, la mère supérieure, curieuse comme une chatte, vint me
-poser toutes sortes de questions, m’appelant, « gros comme le bras », Madame de
+poser toutes sortes de questions, m’appelant, « gros comme le bras », Madame de
 Wyzewa, s’offrant à me mettre en relation avec d’autres pensionnaires de la
 maison, des Madame de Lusigny et autres baronnes, ou comtesses de ci et de ça.
 simple_new_line
@@ -1211,8 +1211,8 @@ faudrait jouer, je lui avouai carrément que je n’étais pas mariée — m’a
 toutefois de lui dire que j’étais danseuse —, et devant son insistance, je lui
 confiai que j’avais fait un peu de théâtre.  
 Son visage à transformations devint aussitôt pincé, elle reprit cependant en me
-remerciant de ma franchise et me pria bien de n’en rien dire à « nos chères
-sœurs ».  
+remerciant de ma franchise et me pria bien de n’en rien dire à « nos chères
+sœurs ».  
 Naturellement, je m’aperçus bien vite que toutes étaient au courant.
 simple_new_line
 
@@ -1220,8 +1220,8 @@ simple_new_line
 frapper, dans ma chambre. chaque fois sous un futile prétexte. J’avais juste le
 temps de dissimuler sous le couvre-pieds le bouquin à couverture jaune qui leur
 eût paru subversif.  
-Elles venaient voir le « phénomène », et je me faisais l’effet d’être la « bête
-curieuse ».  
+Elles venaient voir le « phénomène », et je me faisais l’effet d’être la « bête
+curieuse ».  
 Je fus bientôt obligée de constater que toutes se mettaient en devoir de me
 préparer à mourir saintement, préoccupées uniquement du salut de mon âme.
 simple_new_line
@@ -1229,7 +1229,7 @@ simple_new_line
 Le comble fut que, à l’office du dimanche où je me rendis par bienséance, le
 prêtre, une fois la messe terminée, se tourna vers l’assistance, l’exhortant à
 faire une prière spéciale pour une jeune femme de l’établissement très
-dangereusement malade et éloignée de Dieu !  
+dangereusement malade et éloignée de Dieu !  
 Tous les regards à cet instant se tournèrent vers moi, y compris ceux des
 pensionnaires orphelines.  
 Il avait été convenu à mon arrivée que j’aurais droit de m’aller promener dans
@@ -1245,42 +1245,42 @@ lui, au grand dam de la supérieure qui lui avait affirmé que j’étais perdue
 simple_new_line
 
 La pauvre dissimulait avec peine son envie de pleurer, et lorsque, enfin, il
-m’eut fait part de ce que lui avait dit cette « vieille cornette », je lui dis
-que si je devais mourir, ça serait en dansant, et non dans cette prison ! Et
-voilà  !  
+m’eut fait part de ce que lui avait dit cette « vieille cornette », je lui dis
+que si je devais mourir, ça serait en dansant, et non dans cette prison ! Et
+voilà !  
 Il consentit à m’accompagner au Moulin, où j’ai dansé éperdument ce soir-là
 comme jamais…  
-Je me sentais des ailes. J’aurais traversé le plafond !  
+Je me sentais des ailes. J’aurais traversé le plafond !  
 Grâce aux soins éclairés d’un sien ami, le Dr Héricourt — collaborateur du Dr
 Richet à l’Académie de médecine —, je fus bien malgré moi sauvée et guérie.
 simple_new_line
 
 Mon dévoué ami venait de faire paraître dans L’Écho de Paris un roman, Valbert
 ou les Récits d’un jeune homme, où un chapitre m’est consacré sous le prénom de
-« la petite Marie » ; avec le produit de ce roman, il m’envoya sur la Côte
+« la petite Marie » ; avec le produit de ce roman, il m’envoya sur la Côte
 d’Azur pour y parfaire ma convalescence.  
 Il me rejoignit à Toulon, d’où nous allâmes à Tamaris-sur-Mer voir son ami, le
 peintre Renoir, dont je fis la connaissance.  
 J’y fus témoin des scrupules du grand artiste, qui n’hésitait pas à anéantir une
 toile presque achevée pour la recommencer, n’étant jamais satisfait de son
 œuvre.  
-Comme j’ai aimé Toulon ! Ses couchers de soleil, l’air léger qu’on y respire,
+Comme j’ai aimé Toulon ! Ses couchers de soleil, l’air léger qu’on y respire,
 l’animation de son port qui invite aux départs vers des ailleurs, ses vieux
-quartiers si pittoresques et colorés; combien j’aurais aimé m’y fixer !
+quartiers si pittoresques et colorés ; combien j’aurais aimé m’y fixer !
 simple_new_line
 
 Jamais assez je ne saurai dire combien fut bon pour moi, et de quelle façon
 désintéressée, cet être exquis qu’était Wyzewa.  
-Il avait l’âme d’un saint ! C’était un érudit, il savait tout, et s’efforçait de
-me prêcher l’amour de la simplicité et de la bonté  ! Il m’offrit tour à tour de
+Il avait l’âme d’un saint ! C’était un érudit, il savait tout, et s’efforçait de
+me prêcher l’amour de la simplicité et de la bonté ! Il m’offrit tour à tour de
 m’épouser, de m’adopter… Je fus par lui humblement adorée.  
-Aussi peu convaincus l’un que l’autre, nous tentâmes un soir de jouer « au père
-et à la mère », mais un fou rire partagé coupa court à nos ébats… Et nous
+Aussi peu convaincus l’un que l’autre, nous tentâmes un soir de jouer « au père
+et à la mère », mais un fou rire partagé coupa court à nos ébats… Et nous
 n’allâmes pas plus avant.  
 Il ne pouvait me considérer comme une femme, non plus qu’à moi, il ne
 représentait l’amant I  
 Quel dommage que je n’aie pu l’aimer d’amour, n’ayant jamais pu lui offrir
-qu’une affection reconnaissante et admirative !  
+qu’une affection reconnaissante et admirative !  
 Mais il occupe dans mon souvenir une place unique. et je ne saurais l’oublier.
 simple_new_line
 
@@ -1302,13 +1302,13 @@ pelouse. Un gardien à tête de dogue, habillé comme nos invalides, muni d’un
 énorme gourdin qu’il brandissait menaçant, de loin m’interpella.
 simple_new_line
 
-Il ressemblait aux portraits de Bismarck !  
+Il ressemblait aux portraits de Bismarck !  
 Je me mis à courir, et lorsque je fus hors d’atteinte, je lui fis un joli pied
 de nez à la française et lui lançai le seul mot qu’il pût comprendre.
 simple_new_line
 
 Mon compagnon, très inquiet, m’assura que cet incident aurait pu avoir des
-suites graves et fâcheuses. Brrr !
+suites graves et fâcheuses. Brrr !
 
 De retour à mon cher Moulin, où je me hâtais toujours de revenir après chaque
 escapade, je retrouvai l’accueil affectueux du père Zidler qui me traitait en
@@ -1321,16 +1321,16 @@ nombreux séjours. J’y eus même de charmantes aventures.
 imprégné de Loti, de Rarahu et d’Aziyadé — aimait m’appeler sa petite mousmé
 japonaise.
 
-Ce que j’ai pu avoir de qualificatifs, compliments, éloges de toutes sortes !
+Ce que j’ai pu avoir de qualificatifs, compliments, éloges de toutes sortes !
 simple_new_line
 
 Et combien il est regrettable que tout ça n’ait pas cours en banque.
 simple_new_line
 
 Il y aurait de quoi faire des heureux, et aussi de quoi équilibrer le budget (le
-mien !).  
+mien !).  
 Puis j’y retrouvai à nouveau mon beau secrétaire d’ambassade qui, durant de
-nombreuses années, me demeura « attaché ».  
+nombreuses années, me demeura « attaché ».  
 Nous menâmes sur la Côte une vie de joyeuses folies pendant des jours, assistant
 à toutes les fêtes.
 
@@ -1343,26 +1343,26 @@ Je fus émerveillée de la splendeur des théâtres et des music-halls. de leur
 richesse, de leur confort, des spectacles réussis qu’on y donnait, et surtout de
 la virtuosité des jolies danseuses anglaises.  
 Le public est très friand de théâtre, et dès six heures du soir, l’Anglais moyen
-fait patiemment la « queue », attendant l’ouverture des portes.  
+fait patiemment la « queue », attendant l’ouverture des portes.  
 Je m’amuse beaucoup de certaines scènes de la rue, bien caractéristiques du
 caractère anglais à cette époque.  
 Dans Régent Street et Piccadilly, dès environ la quatorzième heure jusqu’aux
 premières heures du matin, des filles — rebuts de leur pays —, Belges,
-Allemandes, Hollandaises et — horreur ! — des Françaises, circulaient, exerçant
+Allemandes, Hollandaises et — horreur ! — des Françaises, circulaient, exerçant
 leur scandaleux commerce, se croisaient avec de respectables ladies accompagnées
-de belles jeunes filles ; lesquelles, pour ne pas avoir à en rougir, semblaient
+de belles jeunes filles ; lesquelles, pour ne pas avoir à en rougir, semblaient
 ne pas les voir, malgré qu’elles fussent outrageusement remarquables.
 simple_new_line
 
-On voyait couramment les matins, à l’heure de l’« apéro », ces « messieurs »
-leurs protecteurs qui faisaient faire la promenade à leurs « toutous de luxe »
+On voyait couramment les matins, à l’heure de l’« apéro », ces « messieurs »
+leurs protecteurs qui faisaient faire la promenade à leurs « toutous de luxe »
 avant que de se réunir dans les bars.  
 Cela se passait sous le règne de la reine Victoria, et, par un louable sentiment
 de respect pour Sa Majesté, le peuple anglais évitait d’un commun accord de
 soulever cette question subversive en en dénonçant le scandale.  
 C’est du moins ce qui me fut expliqué.  
 Je suppose qu’il n’en va plus de même de nos jours, ainsi du reste que chez
-nous, où l’on ne voit plus sur nos boulevards les filles « racoler » en plein
+nous, où l’on ne voit plus sur nos boulevards les filles « racoler » en plein
 jour comme ça se passait jadis.  
 Quelques Parisiens — s’il en reste — peuvent se rappeler une superbe fille qui
 tout le jour, sitôt le déjeuner, partait en chasse sur nos boulevards, à peine
@@ -1376,21 +1376,21 @@ la nuit. Très vieille sans nul doute, elle n’apparaissait qu’aux lumières.
 Grande, l’air noble et distingué, elle ressemblait à une reine déchue. Afﬂigée
 d’une légère claudication à la suite d’un accident. elle montrait à ses clients
 de passage une photo la représentant jeune avant cette infirmité. Elle avait dû
-être fort belle. Pauvre vieil oiseau de nuit, épave venue on ne sait d’où ?
+être fort belle. Pauvre vieil oiseau de nuit, épave venue on ne sait d’où ?
 
 Chaque jour après midi, une calèche mise à notre disposition nous venait prendre
 pour faire notre promenade dans Hyde Park où, à loisir, nous pouvions admirer de
 luxueux équipages et leurs occupants, dont on me citait les grands noms.
 simple_new_line
 
-Quelle élégance distinguée !  
-Mais il me fallait rentrer à Paris pour l’ouverture du « Jardin ».
+Quelle élégance distinguée !  
+Mais il me fallait rentrer à Paris pour l’ouverture du « Jardin ».
 simple_new_line
 
 J’y devais débuter dans un numéro de danses à transformations pour lequel je
 m’étais amusée à dessiner mes costumes.  
 Ces danses étaient précédées de chansons, ma jolie voix de jadis s’était
-éteinte, et je débitais mes couplets comme une… perruche ; heureusement mes
+éteinte, et je débitais mes couplets comme une… perruche ; heureusement mes
 danses arrangeaient tout et me valurent un flatteur et franc succès.
 simple_new_line
 
@@ -1411,7 +1411,7 @@ Courteline.
 Ma confusion était extrême lorsqu’en leur présence elle me gourmandait pour mon
 manque d’audace et ma si gênante timidité.  
 C’est qu’aussi bien je ne connais personne qui ait autant que moi manqué de
-confiance en soi !  
+confiance en soi !  
 Les Folies-Bergère étaient alors le music-hall le plus élégant et le plus
 fréquenté de Paris. Le directeur, Marchand, s’inspirant des brillants spectacles
 des grandes villes étrangères, faisait grandement les choses, n’hésitant pas à
@@ -1427,8 +1427,8 @@ qui fit courir tout Paris.
 La grande loge réservée aux cercles, celle de la presse, ne désemplissaient pas,
 et chaque soir toutes les élégances y étaient réunies.
 
-À l’entresol du Café Américain était le cercle des « Fauchés », fréquenté par le
-« dessus du panier », hommes chics du jour, et particulièrement par les
+À l’entresol du Café Américain était le cercle des « Fauchés », fréquenté par le
+« dessus du panier », hommes chics du jour, et particulièrement par les
 descendants de la noblesse d’Empire.  
 Prince Mu[rat], Serge de Mar…, de Lagr[ené], Georges Hug[o], Phil[ippe] de
 Vilm[orin], de grandes et célèbres courtisanes, de vraies grandes dames en goût
@@ -1444,9 +1444,9 @@ proposa d’écrire pour le Journal de petites chroniques que j’aurais illustr
 simple_new_line
 
 C’était me supposer des capacités dont je doutais moi-même, puisque, n’ayant
-jamais pris de leçons, je sentais trop que je manquais de « fond », je n’osai me
+jamais pris de leçons, je sentais trop que je manquais de « fond », je n’osai me
 risquer.  
-J’ai passé, dans le bar qui y était installé, de bien charmantes soirées ; le
+J’ai passé, dans le bar qui y était installé, de bien charmantes soirées ; le
 patron me pria, bien souvent, d’y danser après les dîners fins que l’on y
 servait.  
 Je m’amusais beaucoup d’y entendre interpréter tous les potins du moment parmi
@@ -1458,11 +1458,11 @@ Oscar Wilde, Jean Lorrain…
 
 En dehors de mes absences, jamais de courte durée, je revenais toujours à mes
 amours, en l’espèce mon cher Moulin où j’étais si fêtée.  
-Zidler, en abandonnant la direction, « passa la main » à Joseph Oller qui me
+Zidler, en abandonnant la direction, « passa la main » à Joseph Oller qui me
 choya de même.  
 Ce dernier avait fondé les Montagnes-Russes, devenues L’Olympia, institué le
 Pari mutuel aux courses.  
-Il était espagnol, mais on ne peut plus parisien ; très actif et entreprenant,
+Il était espagnol, mais on ne peut plus parisien ; très actif et entreprenant,
 il dirigeait nombre d’affaires commerciales, était, de plus, actionnaire de
 multiples attractions.  
 C’est pour raisons de santé que Zidler se retira, disant adieu à la brillante
@@ -1485,21 +1485,21 @@ monde de la galanterie.
 Ici se marque un temps d’arrêt dans mon insouciante et joyeuse existence. Je
 disparus pendant une année. Le temps de couver… un fils.  
 Demeurée mince malgré tout, je fus rencontrée à mon insu par un qui s’en alla,
-contant partout que je ressemblais à un fil auquel on aurait fait un nœud  !
+contant partout que je ressemblais à un fil auquel on aurait fait un nœud !
 simple_new_line
 
-Cet « événement » m’avait mis du « plomb dans l’aile », ou mieux, dans la tête.
-Fini le temps de la fantaisie !  
+Cet « événement » m’avait mis du « plomb dans l’aile », ou mieux, dans la tête.
+Fini le temps de la fantaisie !  
 Dès ce moment, ma vie intime se modifia entièrement. Je me sentais une
 responsabilité, des devoirs, j’avais désormais charge d’âme.  
-Je me découvris maman de tout mon cœur ! Élaborant des plans, faisant des
+Je me découvris maman de tout mon cœur ! Élaborant des plans, faisant des
 projets, me promettant bien, si mon enfant possédait les dons que j’aime, de les
 encourager, et de lui faciliter toutes les aspirations que jadis, en moi, ma
 mère avait refoulées et comprimées.  
 Je n’ai pas eu de chance puisque, malgré tous mes efforts et mes espoirs au
 cours des années qui suivirent, le pauvre enfant m’a toujours échappé et si
 souvent déçue I  
-La vie de famille n’était pas mon lot ! J’étais destinée à n’en jamais connaître
+La vie de famille n’était pas mon lot ! J’étais destinée à n’en jamais connaître
 les joies, et je ne commis jamais autant de sottises qu’à partir de ce moment où
 je m’appliquai à ne faire que des choses raisonnables et raisonnées.
 simple_new_line
@@ -1515,7 +1515,7 @@ Il me jugeait capable de créer dans Peer Gynt la danse d’Anitra.
 simple_new_line
 
 Je suivis les répétitions, mêlée aux grands artistes qui lui prêtaient leur
-concours. La grande Suzanne Desprès, si émouvante dans la mort d’Aase ! des
+concours. La grande Suzanne Desprès, si émouvante dans la mort d’Aase ! des
 artistes norvégiens bénévoles, grands admirateurs d’lbsen.  
 Leurs éloges anticipés, la confiance qu’ils avaient en mon talent, et qui m’en
 faisait douter davantage, paralysaient mes moyens malgré leurs encouragements.
@@ -1523,7 +1523,7 @@ simple_new_line
 
 Et puis, la capricieuse musique de Grieg, son rythme imprévu déconcertaient mon
 oreille, et lorsque arriva le soir de la représentation, j’étais si émue, avec
-un tel « trac », que je craignais de m’évanouir ou de tomber morte sur scène l
+un tel « trac », que je craignais de m’évanouir ou de tomber morte sur scène l
 simple_new_line
 
 L’orchestre de soixante exécutants, dirigé par Camille Chevillard, ces grands
@@ -1534,25 +1534,25 @@ simple_new_line
 
 Le charme de la musique opérant, j’ai dansé, sans en avoir conscience. un
 sourire figé aux lèvres, que le son du canon n’aurait pu interrompre… et mon
-cœur qui battait ! battait !  
+cœur qui battait ! battait !  
 C’est tout ce que je me rappelle…  
 Je doute que le public ait entendu les quelques mots que je devais adresser à
 mon partenaire, Abel Deval, dans le rôle de Peer.  
 Cette représentation avait lieu dans la salle du Nouveau-Théâtre, rue Blanche,
-remplie, remplie jusqu’au faîte par un public « en or » qui m’applaudit à tout
+remplie, remplie jusqu’au faîte par un public « en or » qui m’applaudit à tout
 rompre. Lugné me repoussa en scène où je dus encore danser à deux reprises.
 simple_new_line
 
-Vous parlez d’une chance ! Je n’en revenais pas !  
+Vous parlez d’une chance ! Je n’en revenais pas !  
 Rentrée dans ma loge, je fus longtemps avant de me remettre de mon intense
 émotion, que je n’ai pas pu oublier.  
 Je fus assaillie de compliments à ne pas savoir où me fourrer. Reynaldo Hahn me
-félicita ; Léon Moreau m’envoya de Nice fruits et fleurs…  
+félicita ; Léon Moreau m’envoya de Nice fruits et fleurs…  
 Je me souviens aussi d’une petite note comique qui eut lieu dans la salle
 pendant l’entracte.  
 L’éminent critique Francisque Sarcey, auquel on me présenta, et qui était très
-entouré, me complimenta et me dit : « Mademoiselle, vous êtes la seule que j’ai
-comprise dans la pièce. »  
+entouré, me complimenta et me dit : « Mademoiselle, vous êtes la seule que j’ai
+comprise dans la pièce. »  
 Je dois du reste ajouter qu’il ne voulait rien savoir d’lbsen, non plus que des
 symbolistes, esthètes ou préraphaélites.  
 À cette occasion, je reçus un gentil sonnet de Pierre Charron, que ma petite
@@ -1572,12 +1572,12 @@ vanité m’incite à reproduire.
   De ton corps éperdu l’amoureux tournoiement.
 
 > Entre deux rouges ﬂeurs éclatent tes yeux d’ombre,  
-  Mystérieuses ﬂeurs ! Brûlure ardente et sombre !  
+  Mystérieuses ﬂeurs ! Brûlure ardente et sombre !  
   Et voici qu’en un rêve éclatant et vermeil,
 
 > J’évoque dans mon cœur qui s’enivre et se pâme,  
-  La grâce de ton nom où semble vivre, ô femme !  
-  Le printemps plein d’amour, de rire et de soleil !
+  La grâce de ton nom où semble vivre, ô femme !  
+  Le printemps plein d’amour, de rire et de soleil !
 
 Encore et toujours, malgré ces hommages si flatteurs, je doutais de moi. Je me
 sentais si pauvre de savoir, j’improvisais et voilà tout, selon ce que
@@ -1587,15 +1587,15 @@ J’ai parfois pensé que j’ai dû bénéficier d’un genre de snobisme, qu�
 d’un seul, ayant quelque influence et décrétant qu’une artiste a du talent, pour
 que tous soient unanimes à lui en décerner.  
 Qui sait même si cette artiste portée aux nues n’en acquiert pas à partir de ce
-moment ?  
-Encore retour au Moulin ; là, seulement, était mon vrai royaume ! Je m’y sentais
-à l’aise puisque dansant au gré de ma fantaisie et que je pouvais me « défiler »
+moment ?  
+Encore retour au Moulin ; là, seulement, était mon vrai royaume ! Je m’y sentais
+à l’aise puisque dansant au gré de ma fantaisie et que je pouvais me « défiler »
 lorsque des complimenteurs paralysaient mes pas.  
 Pourtant j’acceptai, un hiver, de faire partie d’un quadrille au Casino de
 Paris. C’est dans cet établissement que je vis pour la première fois
 Mistinguett, venue se présenter, sollicitant d’être entendue en audition. Elle
 fut engagée pour chanter en lever de rideau. Elle a fait son chemin, la mâtine,
-depuis ce jour lointain !  
+depuis ce jour lointain !  
 En voilà une, et je l’en félicite, que la timidité n’a jamais dû embarrasser l
 simple_new_line
 
@@ -1634,13 +1634,13 @@ soupers en des clubs choisis.
 On donnait, avant notre numéro, des tableaux vivants. Nous voyions des coulisses
 la formation des groupes sur un plateau tournant, qui représentaient des œuvres
 d’art célèbres.  
-Quelles jolies filles en étaient l’ornement !  
-Lorsqu’une Anglaise se mêle d’être jolie, on peut dire qu’elle est parfaite !
+Quelles jolies filles en étaient l’ornement !  
+Lorsqu’une Anglaise se mêle d’être jolie, on peut dire qu’elle est parfaite !
 simple_new_line
 
 Logées à proximité du Palace pour notre commodité. nous apprîmes et pûmes
 constater que le quartier français avait une vilaine réputation et qu’elle
-n’était pas usurpée ; en effet, nous y étions fort mal représentés.
+n’était pas usurpée ; en effet, nous y étions fort mal représentés.
 simple_new_line
 
 Il me fut donné d’y rencontrer des filles nues dans nos music-halls et qui, pour
@@ -1659,7 +1659,7 @@ improvisé, faisait ma joie.
 C’était celui d’espiègles fillettes accourant de tous côtés aussitôt qu’un grand
 orgue mécanique commençait à moudre des airs de gigue environ à l’heure du
 déjeuner.  
-Chacune alors se mettait à danser avec un sens précis de la mesure; elles se
+Chacune alors se mettait à danser avec un sens précis de la mesure ; elles se
 croisaient. sérieuses, savantes, rieuses ou graves — comme accomplissant un
 rite.  
 C’était réglé comme un ballet, je ne me lassais pas de les admirer.
@@ -1672,7 +1672,7 @@ L’ltalien mendiant, possesseur de l’orgue, avait tout lieu de se féliciter,
 ayant récolté ample moisson de pence.  
 J’ai gardé la conviction que toutes les little girls du Royaume-Uni ont comme
 moi la danse dans la peau.  
-Et comme je les comprends !  
+Et comme je les comprends !  
 Nous prenions le plus souvent nos repas à l’hôtel Royal ou Delmonico, en dehors
 de nos invitations au Savoy Hotel où se retrouvaient les élégances londoniennes,
 et autres lieux non moins brillants.  
@@ -1700,27 +1700,27 @@ Ils envisageaient de me faire jouer un rôle dans Les Deux Gosses, dont on allai
 faire une reprise au Théâtre de l’Ambigu.  
 L’actrice qui avait créé le rôle en reprit possession. Ils décidèrent de me
 faire débuter aux Bouffes-du-Nord.  
-Pour cela, je devais m’entraîner, je « potassai » donc Don César de Bazan et
+Pour cela, je devais m’entraîner, je « potassai » donc Don César de Bazan et
 autres sombres drames, et m’aperçus bientôt que je ne possédais aucune
 disposition pour les rôles tragiques, malgré l’opinion de tous ceux qui
 m’affirmaient que mon masque l’était ainsi que ma voix.  
-J’envoyai donc tout ça promener ! Il m’aurait fallu posséder un esprit et un
-cœur tragiques ; or, ce dernier, le pauvre, en a toujours été si éloigné.
+J’envoyai donc tout ça promener ! Il m’aurait fallu posséder un esprit et un
+cœur tragiques ; or, ce dernier, le pauvre, en a toujours été si éloigné.
 simple_new_line
 
 C’est donc encore le Moulin qui me rouvrit ses ailes, où je me retrouvai dans
 mon véritable élément, jusqu’à ce que, de nouveau sollicitée, je me laissasse
 encore entraîner à tenter la folle aventure.  
-Sylvane, auteur de vaudevilles et d’opérettes, me présenta donc à « Samuel le
-Magnifique », alors directeur du Théâtre des Variétés.  
+Sylvane, auteur de vaudevilles et d’opérettes, me présenta donc à « Samuel le
+Magnifique », alors directeur du Théâtre des Variétés.  
 J’avais à y tenir un petit rôle de début dans une pièce fort gaie dont je suivis
 toutes les répétitions en compagnie de la brillante troupe attachée à ce théâtre
 si parisien, dont Brasseur, et la jolie et troublante Ève Lavallière.
 simple_new_line
 
 Vint le moment où j’appris qu’il me faudrait paraître au milieu d’autres,
-costumée en Amour ! Maillot, couronne de roses et ailes au dos ! aux somptueux
-émoluments de 60 francs par mois !  
+costumée en Amour ! Maillot, couronne de roses et ailes au dos ! aux somptueux
+émoluments de 60 francs par mois !  
 Je ne me voyais pas, moi si mince, au milieu de ces petites femmes
 grassouillettes, dodues, potelées autant que rondouillardes, que l’on prisait
 fort à cette époque.  
@@ -1731,28 +1731,28 @@ simple_new_line
 
 Définitivement, j’abandonnai la carrière et retournai à la danse, la seule joie
 qui me restât.  
-La fin du siècle s’accélérait ; c’était le temps où Mme Steinheil dut quitter,
+La fin du siècle s’accélérait ; c’était le temps où Mme Steinheil dut quitter,
 au milieu d’une conversation, notre président Félix Faure qui se mourait, peu
 après avoir contribué aux fêtes de l’Alliance franco-russe. De grands travaux
 commençaient en vue de l’Exposition 1900.  
-L’Hippodrome avait disparu, ainsi que le Palais de l’lndustrie ; notre beau
+L’Hippodrome avait disparu, ainsi que le Palais de l’lndustrie ; notre beau
 Jardin avait dû se réinstaller sur l’emplacement de l’ancien Concert de
 I’Horloge pour faire place au Petit Palais.  
-Les mœurs étaient en pleine évolution : on avait construit le premier métro, la
+Les mœurs étaient en pleine évolution : on avait construit le premier métro, la
 bicyclette était reine, les premières autos circulaient, emmenant vers des
 ailleurs lointains les habitués de lieux de plaisirs qu’ils commençaient de
 délaisser.  
-Le public se portait en foule vers les vélodromes, acclamant les champions ; on
+Le public se portait en foule vers les vélodromes, acclamant les champions ; on
 s’apprêtait à pratiquer les sports réservés jusque-là à de rares amateurs…
 simple_new_line
 
-Tout le gentil « trantran » s’en trouvait bousculé.  
+Tout le gentil « trantran » s’en trouvait bousculé.  
 Aussitôt l’ouverture du Nouveau Jardin, Oller avait eu la malencontreuse idée
-d’interdire au public de danser ; il détruisit ce jour-là un des principaux
-éléments de sa gaieté. Ça n’était plus ça !  
+d’interdire au public de danser ; il détruisit ce jour-là un des principaux
+éléments de sa gaieté. Ça n’était plus ça !  
 Le public avait changé, on n’y voyait plus les mêmes élégances…  
 Les gens, pris d’une subite émulation, se pressaient, se bousculaient même, pour
-aller plus vite, arriver les premiers… Dieu sait où ?  
+aller plus vite, arriver les premiers… Dieu sait où ?  
 J’eus l’impression qu’il avait tué la danse I  
 Elle renaquit de ses cendres. Une frénésie s’est emparée de tous ceux qui la
 pratiquaient depuis la guerre. Tant il est vrai qu’elle fait partie des moyens
@@ -1760,14 +1760,14 @@ d’expression et du besoin inconscient qu’éprouvent les humains d’oublier 
 s’évader…  
 Beaucoup déjà n’avaient plus, ou presque, le temps d’être heureux. Il fallait
 avancer…  
-Ainsi se mourait la bonne flânerie ; avec ce bon vieux siècle qui avait lui
+Ainsi se mourait la bonne flânerie ; avec ce bon vieux siècle qui avait lui
 aussi hâte de disparaître s’en allait un état d’esprit qu’on ne devait plus
 retrouver…  
 Les temps étaient révolus.  
 Il y eut cependant quelques beaux soirs, lors des Grands Prix d’Auteuil, Derby
 de Chantilly, Journée des Drags et Grand Prix de Longchamp. Le Jardin était
-alors illuminé, un grand feu d’artifice terminait la fête, montrant en « bouquet
-» final le cheval vainqueur.  
+alors illuminé, un grand feu d’artifice terminait la fête, montrant en « bouquet
+ » final le cheval vainqueur.  
 C’est au cours de l’un d’eux que je fis connaissance de l’honorable C. Howied.
 simple_new_line
 
@@ -1777,7 +1777,7 @@ danser.
 C’est alors que je décidai de voyager. J’avais remonté un numéro de danses en
 attraction, sans plus l’accompagner de chants. Je le produisis d’abord au Jardin
 et partis seule en tournée, à Clermont-Ferrand, Genève, Nice et Lyon, avec, bien
-entendu, quelques escales et retours dans mon cher « Paname », que je retrouvais
+entendu, quelques escales et retours dans mon cher « Paname », que je retrouvais
 toujours avec la même allégresse.  
 Mon but était surtout de voyager à l’étranger, l’agent qui se chargeait de mes
 engagements avait fait miroiter ce mirage à mes yeux.  
@@ -1786,13 +1786,13 @@ considérait les artistes comme bétail à vendre — ou à louer —, exigeant 
 qu’ils séjournent et prennent pension dans les hôtels dont ils étaient
 actionnaires ou qui leur versaient des ristournes.  
 De pauvres chanteuses engagées au mois étaient astreintes à rester après leurs
-numéros dans les cafés ou salles de jeux attenantes à ces établissements, « à la
-disposition des consommateurs », sous l’œil impitoyable des tenanciers qui
+numéros dans les cafés ou salles de jeux attenantes à ces établissements, « à la
+disposition des consommateurs », sous l’œil impitoyable des tenanciers qui
 exploitaient ces malheureuses, lesquelles se trouvaient leur devoir de l’argent
 à la fin de leur contrat.  
-Heureusement, je n’étais pas dans ce cas ; j’espère que de nos jours cet état de
+Heureusement, je n’étais pas dans ce cas ; j’espère que de nos jours cet état de
 choses a disparu.  
-Par ailleurs, cette existence de « romanichels » ambulants, toujours en route,
+Par ailleurs, cette existence de « romanichels » ambulants, toujours en route,
 campant plutôt mal que bien dans les pensions pour artistes, manquait pour mon
 goût d’agrément, malgré ses quelques côtés pittoresques.  
 Un vieux ménage ainsi retrouvé m’accuse, et bien que je m’en défende, d’être une
@@ -1801,7 +1801,7 @@ Je revins à Paris, où je redansai mon numéro à l’Eldorado, que dirigeait M
 Veuve Marchand.
 
 J’y rencontrai à nouveau Mistinguett, très en progrès. Elle gesticulait — déjà —
-à cheval sur le trou du souffleur, était l’idole des « potaches » qui, aux
+à cheval sur le trou du souffleur, était l’idole des « potaches » qui, aux
 matinées, la bombardaient de bouquets de violettes à deux sous. Elle convoitait
 à ce moment de pouvoir un jour danser comme moi, et aussi de faire partie de la
 troupe de la Scala qui la consacrerait vedette.  
@@ -1813,7 +1813,7 @@ d’Anglais.
 Ça n’était pas sans émotion que chaque soir j’entrais en scène après le comique
 Dranem qui remportait, comme toujours depuis, un triomphe et des rappels sans
 fin.  
-Mes danses commençaient par une gavotte qui faisait bâiller les « titis » du
+Mes danses commençaient par une gavotte qui faisait bâiller les « titis » du
 poulailler, mais plaisait aux loges et aux fauteuils, une valse renversée qui me
 valait des bravos de tous, et je terminais par une danse anglaise plus…
 espiègle, qui me ramenait tous les suffrages.  
@@ -1825,8 +1825,8 @@ maladie, reculant de plusieurs jours l’ouverture du Jardin où il désirait qu
 paraisse.  
 À peine convalescente, un effort surhumain me donna la force d’y être et d’y
 danser.  
-Chère danse ! Elle m’aida à revivre et me sauva une fois de plus. Mais
-décidément, ce pauvre Jardin avait perdu pour moi son charme ancien ; j’avais
+Chère danse ! Elle m’aida à revivre et me sauva une fois de plus. Mais
+décidément, ce pauvre Jardin avait perdu pour moi son charme ancien ; j’avais
 maintenant l’impression d’y être désaxée.
 
 De plus, la fin d’un gentil amour, que le mariage de mon partenaire avait hâtée,
@@ -1841,8 +1841,8 @@ vie s’annonçait trépidante… Je songeais donc à faire une fin, et je céda
 après un siège en règle, aux sollicitations d’un aimable garçon, spirituel et
 charmeur, très épris de moi.  
 C’était un artiste qui, après avoir fait partie de la maison Bing où l’on
-pratiquait ce fameux « Art nouveau » — si critiqué —, créait des modèles de ce
-même style à la « Maison moderne » chez Meier-Graefe — un des
+pratiquait ce fameux « Art nouveau » — si critiqué —, créait des modèles de ce
+même style à la « Maison moderne » chez Meier-Graefe — un des
 quatre-vingt-treize intellectuels allemands qui signèrent le manifeste au début
 de la Grande Guerre.  
 Ce Meier-Graefe était à ce moment persona grata à Paris dans la haute société
@@ -1872,14 +1872,14 @@ simple_new_line
 Je liquidai donc ma situation, pris congé de mes relations et m’embarquai avec
 mon enfant, persuadée de faire œuvre sensée…  
 Je m’en allai vers l’aventure…  
-Vogue la galère ! À Dieu vat !
+Vogue la galère ! À Dieu vat !
 
 Au tournant de la vie, il paraît doux de se sentir encore aimée et désirée. Bien
 tentant aussi de s’abandonner à une protection.  
 Et voilà que, dès notre arrivée à New York, malgré la joie que manifestait mon
-amoureux, un pressentiment m’envahit que « ça n’était pas ça » et que j’avais dû
-commettre une immense sottise. Il était bien temps !  
-Pour éviter de le peiner, je tus mes tristes pensées ; cependant, lorsque, après
+amoureux, un pressentiment m’envahit que « ça n’était pas ça » et que j’avais dû
+commettre une immense sottise. Il était bien temps !  
+Pour éviter de le peiner, je tus mes tristes pensées ; cependant, lorsque, après
 un séjour d’un mois dans la ville aux immenses buildings, il se rendit compte
 que j’avais la nostalgie de mon pays, je lui fus bien reconnaissante de nous
 laisser repartir.  
@@ -1890,26 +1890,26 @@ Au cours de notre voyage aller, le capitaine du bateau, auprès duquel j’étai
 chaudement recommandée, ne cessa de nous combler d’affectueuses attentions. Cet
 aimable homme, bon père de famille, nous faisait venir dans sa cabine, heureux
 de nous montrer les photos des siens, nous jouait des airs de banjo, aimait
-causer avec moi des choses de Paris et s’exaltait en parlant des « Parisiennes
-».  
-Il fit un soir dresser une tente sur le pont; une troupe de musiciens, qui se
+causer avec moi des choses de Paris et s’exaltait en parlant des « Parisiennes
+ ».  
+Il fit un soir dresser une tente sur le pont ; une troupe de musiciens, qui se
 trouvait sur le navire, fit retentir sur l’Océan, dans la nuit, ses gais
 flonflons qui s’en allaient s’éteindre dans l’espace… et je dansai…
 
-La vie à New York ne m’apprit rien d’attrayant ; elle manquait de charme pour
+La vie à New York ne m’apprit rien d’attrayant ; elle manquait de charme pour
 moi, et je n’y vis rien de gracieux.  
 Rien que des gens pressés à masques durs, dont la joie cynique et affichée
 consistait — m’a-t-on confié — à mettre dedans leurs semblables.
 simple_new_line
 
 Papa Oller, auquel j’avais télégraphié, attendait mon retour, qu’il fêta en
-faisant jouer par l’orchestre « Retour d’Avril », et je retrouvai ma place en
+faisant jouer par l’orchestre « Retour d’Avril », et je retrouvai ma place en
 tête du quadrille avec une joie sans pareillle.  
 Mon fils placé à la campagne, je me réinstallai un chez-moi, heureuse d’être
 revenue.  
 L’hiver suivant, le Moulin-Rouge, transformé en théâtre, ouvrit ses portes,
 dirigé par P.-L. Flers qui se promettait d’y faire représenter des revues et
-opérettes. J’y fus engagée pour la revue d’ouverture Tu marches ? dans laquelle
+opérettes. J’y fus engagée pour la revue d’ouverture Tu marches ? dans laquelle
 se révéla une chanteuse experte et commère incomparable, la jolie Baxone, qui
 abandonna trop tôt la scène, enlevée par un riche protecteur.  
 J’y tins plusieurs rôles et fus réengagée pour l’opérette La Belle de New York,
@@ -1925,7 +1925,7 @@ autres et moi, jouer une partie de boxe que le professeur Charlemont nous avait
 enseignée. Or mes partenaires étaient toutes pourvues de mollets abondants.
 simple_new_line
 
-Je fis quelques difficultés avant que de me résoudre à y consentir : tout Paris
+Je fis quelques difficultés avant que de me résoudre à y consentir : tout Paris
 connaissait. mes jambes, minces comme le reste de ma personne, et j’imaginais le
 fou rire qui accueillerait mon entrée en scène. Je finis tout de même par
 accepter l’épreuve, me promettant bien d’en sortir à mon avantage.
@@ -1933,37 +1933,37 @@ simple_new_line
 
 Le soir de la première, je peignai avec tant de persévérance les bourrés de ce
 fameux maillot qu’il n’en resta plus trace, et m’amusai follement, lorsque à
-l’entracte Flers me dit sur le « plateau » :  
-— Eh bien ! Vous voyez, Avril, c’est beaucoup mieux ainsi !  
+l’entracte Flers me dit sur le « plateau » :  
+— Eh bien ! Vous voyez, Avril, c’est beaucoup mieux ainsi !  
 Un soir de gala, il organisa, entre autres attractions, un concours de
 cake-walk, qui commençait de s’acclimater à Paris. L’ayant vu danser en
 Amérique, je m’en tirai fort bien, et il me fut facile de gagner un prix, en
-l’occurrence un corset ! Moi qui n’en portais jamais  !
+l’occurrence un corset ! Moi qui n’en portais jamais !
 
-Les couples danseurs figuraient : « la Belle Otéro » dans les bras de Catulle
-Mendès, « la princesse de Chimay » dans ceux de Rigo, le tzigane, « la princesse
-de Saxe » avec le musicien qui l’avait enlevée. Pour moi, je représentais la
+Les couples danseurs figuraient : « la Belle Otéro » dans les bras de Catulle
+Mendès, « la princesse de Chimay » dans ceux de Rigo, le tzigane, « la princesse
+de Saxe » avec le musicien qui l’avait enlevée. Pour moi, je représentais la
 grande comique Louise Balthy, et son compagnon Chamberlain.
 
-Ce cher ami Lugné-Poe s’attristait pour moi que je fusse si bohème; il m’aurait
+Ce cher ami Lugné-Poe s’attristait pour moi que je fusse si bohème ; il m’aurait
 souhaité la place qui, croyait-il, m’était due, et me fit l’amitié de me
 rappeler pour danser encore la danse d’Anitra dans une reprise qu’il fit de Peer
-Gynt ; plus tard, il me fit danser quelques soirs aux Bouffes-Parisiens dans
+Gynt ; plus tard, il me fit danser quelques soirs aux Bouffes-Parisiens dans
 Claudine à Paris, de Willy et Colette, dont Polaire, qui lui était chère, tenait
 le rôle principal.  
-Je les revois tous trois se bourrant de bonbons sur le « plateau » pendant les
+Je les revois tous trois se bourrant de bonbons sur le « plateau » pendant les
 entractes, et puis encore dans l’avenue des Champs-Élysées, lors de la venue
 d’Édouard VII, où ce ménage à trois ne passa pas inaperçu…  
 Lugné me fit encore l’honneur de m’appeler pour danser devant le mur d’Orange,
 dans une tragédie antique en vers de Joachim Gasquet, où je me trouvai mêlée aux
-« as » de la Comédie-Française : Albert Lambert, Dorival, Gauthier, Marguerite
+« as » de la Comédie-Française : Albert Lambert, Dorival, Gauthier, Marguerite
 Moreno, Lucie Brille, Segond-Weber, Germaine Dermoz, sa sœur, la belle Jane
 Delvair, Aimée Tessandieré…
 
 À peine vêtue, en bacchante, les pieds nus (avant que parût Isadora Duncan),
 j’ai dansé et mimé sur la musique des vers, aux sons muets d’une lyre dont
 semblait jouer une belle fille qui représentait une déesse.  
-Paul Mariéton, Mme Du Gast, ainsi que de nombreux « félibres », me louèrent…
+Paul Mariéton, Mme Du Gast, ainsi que de nombreux « félibres », me louèrent…
 J’en demeurai pour un temps un peu enorgueillie…   
 Et puis encore, voilà que mon pauvre amoureux, qui n’avait cessé de correspondre
 avec moi, revint en France. Il n’avait pas abandonné son projet de nous marier,
@@ -1972,7 +1972,7 @@ bercer d’espoir et, pour la seconde fois, j’envisageai de me retirer de la v
 parisienne.
 
 Ayant rappelé mon enfant, nous vécûmes ensemble, avec bien des heurts parfois,
-car j’eus souvent lieu de regretter mon indépendance ; à d’autres jours, je me
+car j’eus souvent lieu de regretter mon indépendance ; à d’autres jours, je me
 résignais…  
 Je n’avais plus ma chère danse pour m’aider à supporter les difficultés de
 l’existence, du temps passait…  
@@ -1982,7 +1982,7 @@ collaborer aux frais de notre ménage. Et puis, ça n’était plus le public
 habituel de jadis…  
 Tous ceux que j’avais côtoyés étaient dispersés. Les artistes d’antan,
 embourgeoisés, avaient gravi les sommets — pas mal d’entre eux étaient devenus
-des « officiels ».  
+des « officiels ».  
 On ne voyait plus que des gens d’affaires, des boursiers, le milieu était d’un
 niveau moindre, commun et sans vraie gaieté ni esprit, quoique très bruyant.
 simple_new_line
@@ -1994,7 +1994,7 @@ hiver…
 bien que je n’étais pas faite, mais que je jugeais devoir être profitable à mon
 enfant.  
 Il me fut proposé de danser au Théâtre Sarah-Bernhardt, sous la direction
-d’André Calmettes, dans une pièce de Daniel Lesueur : ce me fut une accalmie à
+d’André Calmettes, dans une pièce de Daniel Lesueur : ce me fut une accalmie à
 laquelle je ne résistai pas.  
 Victorien Sardou mit en scène cette pièce dont j’ai oublié le titre, et dont les
 principaux acteurs étaient Nelly Carmont, Berthe Bovy — à peine sortie du
@@ -2006,7 +2006,7 @@ Je repartis encore avec un quadrille pour Madrid, dont j’ai gardé un piteux
 souvenir pour ce que les Madrilènes, qui semblaient chez nous policés, ne
 l’étaient guère dans leur patrie.  
 Ils pratiquaient une galanterie de Maures à l’égard des Françaises, qu’ils
-semblaient considérer comme des « bêtes à plaisir », nous harcelant dans les
+semblaient considérer comme des « bêtes à plaisir », nous harcelant dans les
 rues de leurs grossières propositions…  
 Dès notre arrivée, à peine avions-nous quitté la gare qu’une meute de mendiants,
 loqueteux et piaillant, sortis de je ne sais quelle cour des Miracles, nous
@@ -2016,7 +2016,7 @@ simple_new_line
 Sans l’aide de la garde, je ne sais ce qu’il serait advenu.  
 Chaque soir, à notre arrivée au théâtre de même qu’à notre départ, nous
 retrouvions une horde semblable. ll y en avait de couchés sur le trottoir,
-d’autres, « estropiés », rampaient telles des larves, s’accrochant à nos
+d’autres, « estropiés », rampaient telles des larves, s’accrochant à nos
 vêtements, quêtant une aumône. Ils étaient affreux, même effrayants, et
 faisaient penser aux modèles dont fut hanté le peintre Goya. On aurait pu croire
 qu’ils sortaient de terre, leur nombre s’augmentant à notre approche.
@@ -2028,31 +2028,31 @@ indécente puisque, le soir de nos débuts, une foule hurlait avant que nous ayo
 fait un pas.  
 Mes trois compagnes dansèrent à tour de rôle leurs pas accoutumés, chacune huée
 par une foule d’énergumènes qui leur lançaient dans leur langue des grossièretés
-dont, sans les comprendre, nous devinions le sens. Heureusement !
+dont, sans les comprendre, nous devinions le sens. Heureusement !
 simple_new_line
 
 Je tremblais que l’une d’elles leur exprimât son dépit par quelque geste
 insolent… ce qu’elles n’auraient pas manqué de faire à ceux de chez nous.
 simple_new_line
 
-On nous aurait certainement écharpées !  
-Lorsque arriva mon tour, je me jurai en mon for intérieur que je les aurais !
+On nous aurait certainement écharpées !  
+Lorsque arriva mon tour, je me jurai en mon for intérieur que je les aurais !
 simple_new_line
 
 Luttant de toute ma volonté, je m’appliquai à prodiguer en dansant, à ce public
 de brutes, toute la grâce dont j’étais capable, avec le plus charmeur des
-sourires… et je gagnai la partie ! Ouf !  
-Des applaudissements, et même des compliments « respectueux » me furent
+sourires… et je gagnai la partie ! Ouf !  
+Des applaudissements, et même des compliments « respectueux » me furent
 adressés, qui me dédommagèrent un peu de l’effort que j’avais fourni pour les
 vaincre. J’eus conscience de les savoir mérités.  
 Or, me rappelant les danses lascives que les Espagnols exécutaient sur scène,
-encouragés par de frénétiques « Olé ! olé ! » mimant le simulacre des gestes de
+encouragés par de frénétiques « Olé ! olé ! » mimant le simulacre des gestes de
 l’amour — tel qu’on le comprend là-bas —, je me demande encore ce qu’ils
 croyaient devoir attendre de nos danses, pour s’en montrer choqués par
-anticipation !  
+anticipation !  
 Je me dois de signaler qu’au temps où cela se passait, ils étaient entichés des
 Allemands, et qu’alors les Français n’étaient pas en faveur. Il paraît que le
-vent a tourné depuis !  
+vent a tourné depuis !  
 Nous n’osions nous montrer dans la ville, assaillies chaque fois que nous
 l’avions tenté d’offres inconvenantes.  
 On semblait vivre en ce pays dans une atmosphère de perpétuelle sensualité…
@@ -2065,21 +2065,21 @@ une sorte de bouge enfumé, danser des femmes andalouses et des gitanes.
 véritables figures de sorcières quelque peu démoniaques, vêtues d’oripeaux
 pittoresques et coloriés.  
 Danseuses sincères, se livrant toutes dans leur mimique merveilleuse pleine de
-fougue et de passion. C’était très beau !  
+fougue et de passion. C’était très beau !  
 Ces femmes ne ressemblent du reste en rien aux danseuses pailletées que nous
 avons accoutumé de voir sur nos scènes parisiennes.  
 La Pastoria lmperio, superbe fille de seize ans, brune aux grands yeux bleus
 magnifiques. échappée d’un de ces bouges, dansait, féline, ardente ou mièvre,
 comme possédée. Je croyais la revoir à Paris où elle aurait triomphé. J’ai gardé
 d’elle un souvenir inoubliable.  
-Un journaliste ne cessa, durant tout le temps de mon séjour, de m’offrir ses «
-services ». Il était fier de me montrer les cicatrices que ses maîtresses lui
+Un journaliste ne cessa, durant tout le temps de mon séjour, de m’offrir ses « 
+services ». Il était fier de me montrer les cicatrices que ses maîtresses lui
 avaient prodiguées à l’aide de couteaux. Ce sont, paraît-il, des marques d’amour
-que se donnent les amants, tous furieusement jaloux !  
+que se donnent les amants, tous furieusement jaloux !  
 Je fus, la veille de mon départ, poursuivi par cet enragé, et dus faire appel au
 sereno — gardien de nuit chargé d’ouvrir les portes avec son passe-partout —
 afin de m’en délivrer, me souciant peu de recevoir un tel souvenir de ce
-fougueux hidalgo !
+fougueux hidalgo !
 
 À mon retour, j’ai dansé seule pendant quelques soirs chez la chanteuse Nini
 Buffet qui tenait le cabaret de La Nouvelle-Athènes, place PigaIle, mais je ne
@@ -2087,7 +2087,7 @@ continuai guère, car il n’ouvrait que fort tard, et danser la nuit me fatigua
 sans que j’y prisse aucun agrément.  
 J’aurais pu danser toutes les nuits chez Maxim’s — Cornuché, le patron, me
 proposait des conditions avantageuses, et j’y aurais acquis des bénéfices
-appréciables —, mais cette vie nocturne aurait vite eu raison de ma santé : je
+appréciables —, mais cette vie nocturne aurait vite eu raison de ma santé : je
 refusai.  
 Je regagnai, triste et désabusée, le foyer que je pensais ne devoir plus jamais
 quitter, mais chaque jour me confirmait dans l’opinion que j’avais associé ma
@@ -2100,7 +2100,7 @@ Après que dans un collège j’eus placé mon fils, je me réfugiai en des bras
 accueillants qui se tendaient vers moi depuis quelques années.  
 J’ai vécu, grâce à ses soins, dans une opulence dorée pendant longtemps,
 entourée d’une tendresse quasi paternelle, dansant encore pour mon plaisir… et
-pour le sien !  
+pour le sien !  
 La mort de cet homme si bon changea encore mon destin.
 
 Par l’entremise d’amis, je trouvai plus tard mon inconsolable amant, qui avait
@@ -2112,7 +2112,7 @@ Nous nous mariâmes donc. Mon fils porte son nom [^3-2].
 Loin des tentations et des déceptions de la grande ville, nous nous retrouvâmes
 dans ce petit coin de l’Île-de-France où, seule à présent, je m’achemine vers la
 Fin à tous réservée.  
-Mon conjoint est mort des suites de la guerre [^3-3] ; mon fils déambule en tous
+Mon conjoint est mort des suites de la guerre [^3-3] ; mon fils déambule en tous
 les recoins de notre planète,  je ressasse mes souvenirs d’antan…
 simple_new_line
 
@@ -2120,19 +2120,19 @@ L’âge — dit de raison — enfin venu, je n’ai plus de personne à aimer n
 m’aime, et cela est triste… on se sent seule comme dans un désert…
 simple_new_line
 
-Seule ? Ne le fus-je pas toujours en somme ? Mes rêves furent si éloignés des
+Seule ? Ne le fus-je pas toujours en somme ? Mes rêves furent si éloignés des
 réalités… D’ailleurs, qui donc peut ici-bas assez se leurrer pour espérer jamais
-être compris d’autrui ?  
+être compris d’autrui ?  
 Quoi qu’il en soit, je veux garder quand même une fierté d’avoir été distinguée
 et chérie — et d’en avoir partagé l’agrément — par des êtres fins, délicats,
 sensibles, intelligents ou spirituels,  d’éducation supérieure, d’une galanterie
 attentive et tendre, élégante à tous points de vue, et beaux avec ça, ce qui ne
-gâte rien !  
+gâte rien !  
 Je les revois tour à tour…  
-Et je les aime encore de les avoir aimés !  
+Et je les aime encore de les avoir aimés !  
 En me recueillant, je m’aperçois que j’ai traversé une époque en voltigeant dans
 la cohue tourbillonnante d’êtres divers sans avoir rien laissé deviner du
-tréfonds de moi-même. N’est-ce pas mieux ainsi ?  
+tréfonds de moi-même. N’est-ce pas mieux ainsi ?  
 Je souhaite pour vous, jeunes femmes garçonnières, que renaisse un jour un peu
 de notre joli temps. Voici déjà que réapparaissent quelques drapés à la mode
 d’autrefois, les boléros sont en faveur, les manches à gigot elles-mêmes
@@ -2144,7 +2144,7 @@ jolies, ainsi que les délicieux dessous travaillés de dentelles froufroutantes
 qui vous feront redevenir féminines, je gage que vous ne perdrez rien au change.
 simple_new_line
 
-Mais voilà que je pontifie, ma parole ! Et cependant, je ne suis pas devenue une
+Mais voilà que je pontifie, ma parole ! Et cependant, je ne suis pas devenue une
 grave dame patronnesse. Plus simplement, une petite vieille rentière, qui
 tricote les soirs, en mesure aux sons langoureux, allègres, caressants,
 passionnés ou tendres — douloureux aussi parfois — des vieilles valses périmées
@@ -2154,7 +2154,7 @@ agréablement, ou font perler une larme dans mes yeux, car le rythme est en moi
 pour jamais, et il me faut avouer à ma confusion que je dois beaucoup résister
 en m’abstenant d’entrer là où l’on danse.  
 Je serais capable, en dépit de mes cheveux blancs et du qu’en-dira-t-on, de me
-laisser emporter par la musique !  
+laisser emporter par la musique !  
 C’est peut-être une des multiples expressions de ce qu’il est convenu d’appeler
 la folie. Si c’en est une, elle me fut toujours douce et consolante, elle m’a
 aidé à vivre, et je reste son esclave enchantée.  
@@ -2162,13 +2162,13 @@ Il m’arrive en dormant de rêver que je danse encore. Posant à peine, et
 rarement, la pointe de mon orteil sur le sol, je m’envole, légère, et tous ceux
 que j’ai aimés me sourient d’en bas.  
 J’aurais aimé, jadis, de mourir en dansant…  
-Si, dans l’autre monde, existent des « dancings », il n’y a rien d’impossible à
-ce que je sois conviée pour interpréter la Danse macabre !
+Si, dans l’autre monde, existent des « dancings », il n’y a rien d’impossible à
+ce que je sois conviée pour interpréter la Danse macabre !
 
-[^3-1]: Le pharmacien Auguste-Arthur Géraudel (1841-1906)
-([http://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel](http://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel))
-est à l'origine des pastilles Géraudel.  [^3-2]: Jane Avril épouse Maurice Biais
-([http://fr.wikipedia.org/wiki/Maurice_Biais](http://fr.wikipedia.org/wiki/Maurice_Biais)),
+[^3-1] : Le pharmacien Auguste-Arthur Géraudel (1841-1906)
+([http ://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel](http ://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel))
+est à l'origine des pastilles Géraudel.  [^3-2] : Jane Avril épouse Maurice Biais
+([http ://fr.wikipedia.org/wiki/Maurice_Biais](http ://fr.wikipedia.org/wiki/Maurice_Biais)),
 peintre, dessinateur et affichiste.
 
-[^3-3]: Il s’agit de la première guerre mondiale.
+[^3-3] : Il s’agit de la première guerre mondiale.
