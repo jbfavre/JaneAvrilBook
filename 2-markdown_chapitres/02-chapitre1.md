@@ -9,18 +9,14 @@ vie « à grandes guides ». Il y était venu pour y faire la fête et devai
 ruiner.  
 C’était un homme d’une rare distinction, raffiné, artiste, d’une extrême
 sensibilité et de belles manières, qui avait fui le rigorisme austère d’une
-pieuse famille, très en faveur au Vatican, où elle comptait de solides attaches.
-simple_new_line
-
+pieuse famille, très en faveur au Vatican, où elle comptait de solides attaches.  
 Ma mère, sous les dehors les plus charmeurs et les plus séduisants, dissimulait
 une nature de méchanceté cruelle et morbide. Je n’ai compris que plus tard
 qu’elle était avant tout une malade.  
 Après une idylle qui dura environ deux années, mon père excédé la quitta, après
 bien des orages et des raccommodements, et je fus alors confiée à mes
 grands-parents maternels qui résidaient à Étampes.  
-C’était après la guerre de 1870. Des Allemands occupaient la ville.
-simple_new_line
-
+C’était après la guerre de 1870. Des Allemands occupaient la ville.  
 Plusieurs étaient casés chez ma bonne et chère grand-mère qui ne cessait — la
 pauvre — de bougonner derrière leur dos à cause de leur présence. Je les revois
 encore…  
@@ -32,9 +28,7 @@ soirs « le son du cor au fond des bois », car on chassait fréquemment dan
 nombreux châteaux d’alentour.  
 J’étais minuscule et menue, mais ma petite cervelle travaillait beaucoup déjà.
 Les religieuses aux soins desquelles on m’avait confiée me paraissaient des
-êtres immatériels comme seuls les enfants peuvent s’imaginer les anges.
-simple_new_line
-
+êtres immatériels comme seuls les enfants peuvent s’imaginer les anges.  
 Pas un instant je n’aurais pensé qu’elles pussent agir, manger, dormir comme des
 créatures ordinaires ; aussi me fut-ce une première et grande désillusion — j’eus
 la pudeur de ne la confier à personne — le jour où, dans un corridor, je croisai
@@ -49,20 +43,14 @@ vivre auprès d’elle.
 Combien funeste pour moi fut cette décision et combien triste !  
 Dès les premiers jours, je fus terrorisée ! Et c’est dans cette atmosphère
 qu’allait s’écouler ma lamentable et douloureuse enfance.  
-L’évocation de ce triste temps me fait encore frissonner d’angoisse.
-simple_new_line
-
+L’évocation de ce triste temps me fait encore frissonner d’angoisse.  
 Que l’on n’aille pas croire que j’insiste à plaisir sur cette pénible période,
-ce ne sont que des tranches d’une pauvre vie d’enfant très malheureuse.
-simple_new_line
-
+ce ne sont que des tranches d’une pauvre vie d’enfant très malheureuse.  
 Dans notre modeste logis si nouveau pour moi, ma mère m’apparut sous le plus
 étrange aspect.  
 Elle interrogeait les cartes, le marc de café et, suivant que l’avenir lui
 apparaissait sous un jour néfaste ou favorable, se croyait une victime lâchement
-persécutée, ou bien se montrait exaltée des plus fantaisistes idées de grandeur.
-simple_new_line
-
+persécutée, ou bien se montrait exaltée des plus fantaisistes idées de grandeur.  
 Elle parlait seule, faisant tous les frais de la conversation, demandes et
 réponses, et n’interrompait ses « mono-dialogues » que pour m’abreuver des pires
 injures dont la grossièreté m’effrayait et me blessait.  
@@ -70,26 +58,20 @@ Joignant le geste à la parole, avec ou sans le moindre prétexte, elle me
 frappait cruellement, et cela plusieurs fois la journée ; évitant toutefois de me
 marquer au visage par crainte de traces visibles qui auraient pu éveiller les
 soupçons de notre entourage. Par contre, le reste de mon individu était illustré
-de toutes les couleurs du prisme et portait sa signature — si je puis dire.
-simple_new_line
-
+de toutes les couleurs du prisme et portait sa signature — si je puis dire.  
 Défense formelle m’était faite de crier ou de faire entendre la moindre plainte
 sous peine des pires représailles, et — si invraisemblable que cela puisse
 paraître — j’en étais arrivée à crier tout bas ma douleur ! sifflant : « Assez !
 assez ! assez ! »  
 Que n’ai-je osé hurler !  
-Quelqu’un serait peut-être intervenu, et mon martyre aurait pris fin !
-simple_new_line
-
+Quelqu’un serait peut-être intervenu, et mon martyre aurait pris fin !  
 Il me faut dire qu’à son délire de la persécution et ses chimères de grandeur,
 elle joignait un don merveilleux de dissimulation qui, dans le fond de moi, me
 révoltait. Qui donc dans notre entourage aurait pu se douter qu’une dame de si
 noble apparence, avec sa fillette gentiment attifée, se livrait sur celle-ci à
 de pareils sévices ?  
 Nous ne fréquentions chez personne et vivions isolées.  
-Combien de fois, au cours de ces tristes années, j’ai songé à me faire mourir !
-simple_new_line
-
+Combien de fois, au cours de ces tristes années, j’ai songé à me faire mourir !  
 De jour en jour, ma mère avait dû se séparer de tout ce qui pouvait lui rappeler
 son luxe d’autrefois. Elle avait fini par se résigner et s’employer à de menus
 travaux de lingerie ou broderie.  
@@ -112,9 +94,7 @@ voisinage.
 M. Hutt… ayant à maintes reprises constaté que j’avais une jolie voix de
 contralto, conseillait à ma mère de me faire travailler la musique et le chant,
 parlant de me faire entrer plus tard au Conservatoire.  
-Ces demoiselles ne se faisaient pas faute de m’entendre chanter des cantiques.
-simple_new_line
-
+Ces demoiselles ne se faisaient pas faute de m’entendre chanter des cantiques.  
 Hors de la contrainte maternelle, j’étais heureuse, gaie, enjouée, franche,
 aimante et sincère — espiègle aussi parfois, mais je savais si bien me faire
 pardonner !  
@@ -123,9 +103,7 @@ semblaient m’adorer, et j’aurais aimé d’avoir l’occasion de me dévouer
 elles.  
 Je leur avais caché, ainsi qu’à tout le monde, les souffrances que j’endurais à
 la maison, jusqu’à un certain jour où la directrice, me voyant arriver tout
-endolorie et les yeux boursouflés de chagrin, me prit à part dans son bureau.
-simple_new_line
-
+endolorie et les yeux boursouflés de chagrin, me prit à part dans son bureau.  
 Avec force caresses, et me prodiguant ses affectueux baisers, elle me confessa.
 Je n’eus pas la force de me taire plus longtemps. Elle fondait mon cœur, et je
 lui racontai toutes mes misères.  
@@ -148,9 +126,7 @@ descendue en moi, et je crains fort de rester pour toujours une pauvre mécréan
  !  
 Les effets d’une telle existence, coups, frayeurs, émotions et souffrance
 morale, ne tardèrent pas à se faire sentir chez la frêle enfant que j’étais. Des
-manifestations nerveuses me retenaient certains jours à la maison.
-simple_new_line
-
+manifestations nerveuses me retenaient certains jours à la maison.  
 Quelle peine c’était alors pour moi que d’être privée de la bonne atmosphère de
 la pension !  
 S’autorisant de ce prétexte, et sans doute notre gêne augmentant, l’idée vint à
@@ -184,9 +160,7 @@ la seule personne que je pensais susceptible de me sauver, le bon M. Hutt… don
 j’ai parlé plus haut.  
 Il s’était depuis longtemps créé un nouveau foyer, et sa charmante femme, mère
 d’un garçonnet presque de mon âge, m’accueillit affectueusement. Intelligente,
-d’une grande largeur d’esprit, elle n’ignorait rien de la situation.
-simple_new_line
-
+d’une grande largeur d’esprit, elle n’ignorait rien de la situation.  
 Avec une tendre sollicitude, ils me réconfortèrent et décidèrent de me
 soustraire aux mauvais traitements de ma mère : on me cacherait si elle venait
 me chercher.  
@@ -218,9 +192,7 @@ première surveillante de Charcot, décorée de la Légion d’honneur pour son 
 et ses services exceptionnels, se déroula une scène pathétique.  
 Ma mère pleura, m’accusant des pires méfaits — imaginaires —, disant qu’elle
 avait sacrifié sa vie pour moi, etc., etc., etc.  
-Bref, aux yeux des personnes présentes, je dus passer pour un monstre.
-simple_new_line
-
+Bref, aux yeux des personnes présentes, je dus passer pour un monstre.  
 Du bon vieil _Ambigu_.  
 Elle fut autorisée à me venir voir chaque semaine. Nous passions l’heure de la
 visite dans les magnifiques jardins de cette grande maison qui est une vraie
@@ -231,16 +203,10 @@ De ces entrevues, je m’en revenais si malade et épouvantée que l’on finit 
 haut lieu par s’en apercevoir, et l’on convint que ses visites futures auraient
 désormais lieu au parloir.  
 On alléguerait que j’étais punie et privée de sortie.  
-Je fus bien heureuse de cette décision qui me protégeait contre mon bourreau.
-simple_new_line
-
-La malice vient aux filles, jusqu’aux plus timides dont j’étais.
-simple_new_line
-
+Je fus bien heureuse de cette décision qui me protégeait contre mon bourreau.  
+La malice vient aux filles, jusqu’aux plus timides dont j’étais.  
 Je suis demeurée deux années dans cet « éden » — car c’en était un pour moi,
-tant ici-bas tout est relatif. J’y acquis même une sorte de petite célébrité.
-simple_new_line
-
+tant ici-bas tout est relatif. J’y acquis même une sorte de petite célébrité.  
 À certains soirs, les « grandes » me priaient de chanter, ma voix était jolie à
 ce moment, et, du laboratoire proche où travaillaient des internes, on
 m’écoutait.  
@@ -251,18 +217,14 @@ possédait alors.
 Ballottée dans la vie et demeurée si tard incapable de considérer les choses à
 leur plan normal, vivant comme dans un perpétuel rêve sans connaître leur
 valeur, ni même chercher à s’en enquérir !  
-Tout de même, j’en reviens à ce qu’il m’a été donné d’observer en cet endroit.
-simple_new_line
-
+Tout de même, j’en reviens à ce qu’il m’a été donné d’observer en cet endroit.  
 D’abord il y avait ces folles filles, dont la maladie, dénommée « hystérie »,
 consistait surtout à la simuler…  
 Qu’elles se donnaient de peine afin d’attirer sur elles l’attention et de
 conquérir la « vedette ». C’était à celle qui trouverait du nouveau afin
 d’éclipser ses semblables, lorsque autour de leur lit un nombreux groupe
 d’élèves, que précédait Charcot, suivait avec intérêt leurs extravagantes
-contorsions, « arcs de cercle », acrobaties variées et autres gymnastiques.
-simple_new_line
-
+contorsions, « arcs de cercle », acrobaties variées et autres gymnastiques.  
 Plusieurs d’entre elles eurent avec ceux-ci de galantes aventures dont les
 vivants résultats, après quelques mois, se faisaient jour.  
 Elles disparaissaient alors pendant le temps nécessaire à ce genre d’événements,
@@ -276,9 +238,7 @@ ne manque pas de venir près de mon lit et de m’appuyer très fort sur les
 ovaires. »  
 Il était entendu que cette simple application des mains devait suffire à
 interrompre momentanément la crise, permettant ainsi à la « malade » — en
-retrouvant ses esprits — de s’entretenir avec « l’Élu » du moment.
-simple_new_line
-
+retrouvant ses esprits — de s’entretenir avec « l’Élu » du moment.  
 Sentant proche l’heure de la visite de Charcot, plusieurs « piquaient une
 attaque », et complaisamment, le moment venu, j’accomplissais ce qu’elles
 m’avaient demandé.  
@@ -289,20 +249,14 @@ médicales venues de tous pays, Charcot faisait son cours, présentait ses « 
 les plus curieux, sur lesquels il se livrait à de nombreuses expériences de
 suggestion.  
 C’était un spectacle comique pour moi que de voir ces toquées s’en revenir si
-fières et ravies d’avoir été choisies et distinguées par le « maître » !
-simple_new_line
-
+fières et ravies d’avoir été choisies et distinguées par le « maître » !  
 Dans ma petite jugeote, je m’étonnais chaque fois que d’aussi éminents savants
 pussent être dupés de la sorte, quand moi, si minime pourtant, je connaissais
 leurs comédies !  
-Je me suis laissé dire depuis que le grand Charcot ne les ignorait pas.
-simple_new_line
-
+Je me suis laissé dire depuis que le grand Charcot ne les ignorait pas.  
 En me les rappelant, je n’arrive pas à comprendre comment ces filles — jolies
 pour la plupart — étaient assez sottes et paresseuses pour s’exiler de toute vie
-active et — recluses volontaires — gâcher ainsi leur belle jeunesse.
-simple_new_line
-
+active et — recluses volontaires — gâcher ainsi leur belle jeunesse.  
 Quelles épaves ont-elles pu devenir ?
 
 Les pensionnaires de Charcot étaient logées dans une grande salle du
@@ -321,9 +275,7 @@ assises immuables, telles les Parques.
 L’une, grande, majestueuse, pâle et tragique, aux cheveux de neige coupés dru en
 brosse, surnommée « la Place Maubert » qui, lorsqu’on l’interpellait, se levait
 effrayante, étendait ses longs bras menaçants et criait d’une voix caverneuse :
-« La Place Maubert, je la respecte, et vous, je vous emm… guirlande ! »
-simple_new_line
-
+« La Place Maubert, je la respecte, et vous, je vous emm… guirlande ! »  
 La seconde, appelée « Petit Corps », qui, un jour que je l’avais taquinée
 (l’enfance est inconsciente et sans pitié), m’emporta dans ses bras où je crus
 mourir de peur.  
@@ -331,9 +283,7 @@ Puis « la Durand », affreux gnome quémandant sans cesse du papier de soie
 balbutiant des choses innommables.  
 Il me faut aussi mentionner « la Perdrix », robuste gaillarde bien en chair qui
 sans arrêt arpentait la cour, parlant, tricotant, sans discontinuer, tricotant
-de ses mains vertigineusement, et sautant à pieds joints les caniveaux.
-simple_new_line
-
+de ses mains vertigineusement, et sautant à pieds joints les caniveaux.  
 Elle s’accrochait parfois à ceux qui la croisaient pour se plaindre d’on ne
 savait quoi dans un langage précipité autant qu’incompréhensible, puis, soudain
 impatientée, retroussait ses jupes et montrait en s’enfuyant son gros postérieur
@@ -381,15 +331,11 @@ Jeanne Charcot.
 À peine venait-on d’attaquer les premières mesures d’une valse que, soulevée de
 terre par son rythme entraînant, je m’élançais comme un « cabri », emportée dans
 un éblouissant tourbillon, sans plus rien voir ni personne !  
-J’avais jusque-là ignoré ce qu’étaient un bal, la musique et la danse !
-simple_new_line
-
+J’avais jusque-là ignoré ce qu’étaient un bal, la musique et la danse !  
 Moi, si timide pourtant !  
 Ce fut irrésistible !  
 Je me rappelle que j’étonnai tous les assistants et que, tout émue de confusion,
-je fus félicitée, complimentée, embrassée. J’eus donc un véritable succès !
-simple_new_line
-
+je fus félicitée, complimentée, embrassée. J’eus donc un véritable succès !  
 J’aurais voulu me cacher à six pieds sous terre tant j’avais honte d’avoir été
 ainsi emportée par mon instinct que, jusqu’à cet instant, je n’avais jamais en
 moi soupçonné.  
@@ -398,12 +344,8 @@ Il y eut grand conseil en présence du Dr Charcot, du directeur Lebas — qui
 déclara à ma mère que si j’avais à nouveau à subir ses mauvais traitements, il
 m’autorisait à revenir à la Salpêtrière où l’on m’élèverait en me faisant suivre
 les cours de l’École d’infirmières, fondée par les docteurs Bourneville et
-Legrand du Saulle, afin de faire de moi plus tard une grande surveillante.
-simple_new_line
-
-Ma mère jura ses « grands dieux », promit tout ce qu’on voulut et m’emmena…
-simple_new_line
-
+Legrand du Saulle, afin de faire de moi plus tard une grande surveillante.  
+Ma mère jura ses « grands dieux », promit tout ce qu’on voulut et m’emmena…  
 Trois jours n’étaient pas écoulés que l’infernale vie recommençait !
 
 Dans ses moments d’accalmie, aux heures de repas, elle s’efforçait de me faire
@@ -432,9 +374,7 @@ Politique et Tyrol… Mon père était natif de Trente, et sa famille fixée à
 Rovereto.  
 Il arrivait enfin… je l’appelais « Monsieur », il me gratifiait d’une légère et
 presque amicale pichenette sur la joue, semblant autant que moi embarrassé,
-prenait ma lettre en s’en allant, et me faisait remettre sa réponse.
-simple_new_line
-
+prenait ma lettre en s’en allant, et me faisait remettre sa réponse.  
 J’ai déjà dit qu’il se ruina — aidé en cela par quelques aigrefins de la « 
 Phynance »[^1-1]. Bientôt, ce fut la sinistre saisie de ce qu’il possédait
 encore. Ce lui fut un désastre auquel sa santé ne résista pas. Une congestion
@@ -443,9 +383,7 @@ Sa famille, lorsqu’elle en fut avisée, consentit à le faire revenir en Itali
 où, miné par le chagrin, il ne survécut que peu de temps.  
 À plusieurs reprises, ma mère me fit écrire à sa famille, réclamant de l’aide.
 Elle envoya celui de mes portraits où je ressemblais le plus au marquis. On ne
-répondit jamais. Je crois tenir de mon père le manque de sens pratique.
-simple_new_line
-
+répondit jamais. Je crois tenir de mon père le manque de sens pratique.  
 Ma mère, dont la folie délirante faisait chaque jour de nouveaux progrès,
 s’était mis en tête qu’on me voulait soustraire à elle, m’enlever, que je devais
 être de connivence avec mes ravisseurs. demandait quand le carrosse me viendrait

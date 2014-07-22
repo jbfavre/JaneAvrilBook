@@ -15,9 +15,7 @@ Car ces souvenirs d’autrefois, me revenant à l’esprit, en éveillaient d’
 d’autres encore. Et voici qu’après avoir si longtemps hésité, je vais tout de
 même essayer d’en fixer quelques-uns, bien que je m’y sente malhabile, et qu’en
 réfléchissant, j’aie bien peur qu’ils n’offrent guère d’intérêt aux lecteurs
-curieux de me lire, parce que je n’ai rien de « croustillant » à y mettre.
-simple_new_line
-
+curieux de me lire, parce que je n’ai rien de « croustillant » à y mettre.  
 Et puis il est si difficile de parler de soi ! Il leur faudra être très
 indulgents à la simple amoureuse de la Danse que seulement je fus, qui n’a
 existé que par Elle et pour Elle !  

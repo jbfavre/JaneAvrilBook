@@ -3,9 +3,7 @@
 Dix-sept ans, cheveux au dos, j’en paraissais bien douze !  
 J’avais fait la connaissance d’un grand garçon qui étudiait la médecine au
 Val-de-Grâce : nous nous étions rencontrés plusieurs fois, et peu à peu, mise en
-confiance, je lui avais raconté les tristesses de ma vie de misère…
-simple_new_line
-
+confiance, je lui avais raconté les tristesses de ma vie de misère…  
 Je le retrouvais, il me disait des mots « souaves » à l’oreille. que je devrais
 venir vivre avec lui, qu’il ne pourrait certes m’épouser, mais que lorsqu’il
 aurait terminé ses études et qu’il lui faudrait rejoindre ses parents, il
@@ -32,13 +30,9 @@ Un soir, en rentrant, je trouvai devant notre porte une jeune femme qui me
 raconta qu’il l’avait séduite et abandonnée, qu’elle avait des droits, et
 qu’elle allait le lui faire voir !  
 Ses explications me convainquirent sans peine qu’elle était là vraiment à sa
-place, et je la lui abandonnai au moment même qu’il rentrait. Tableau !
-simple_new_line
-
+place, et je la lui abandonnai au moment même qu’il rentrait. Tableau !  
 Il tenta bien de me retenir mais, pleine de dignité et d’esprit de justice. je
-partis, abandonnant à ma remplaçante les menus présents que je tenais de lui.
-simple_new_line
-
+partis, abandonnant à ma remplaçante les menus présents que je tenais de lui.  
 Jusqu’à mon chapeau neuf !  
 Estimant que tout cela lui appartenait de plein droit.  
 Je compris plus tard que mon amoureux, amateur de fruits verts, devait, en
@@ -48,26 +42,18 @@ Il était environ huit heures du soir, pour moi, pas question de dîner, mon par
 fut vite pris : j’irais me jeter dans la Seine.  
 Je suivais la rue Casimir-Delavigne lorsque, retrouvant dans ma poche une pièce
 de 50 centimes, je décidai de la dépenser avant de mourir, en voyant éclairé le
-Théâtre de l’Odéon. J’y demandai un billet pour le « poulailler ».
-simple_new_line
-
+Théâtre de l’Odéon. J’y demandai un billet pour le « poulailler ».  
 Je me souviens avoir vu de là-haut, deux crânes chauves et un tapis vert
 recouvrant une table. C’était lugubre !  
 Toute à mon projet, je n’ai rien entendu ni compris. Je crois me rappeler que la
 pièce devait s’intituler _Les Deux Barbeaux_.  
-J’avais une envie folle de m’en aller, mais je n’osais déranger personne.
-simple_new_line
-
-Dès l’entracte, je dégringolai les étages et me retrouvai dans la nuit…
-simple_new_line
-
+J’avais une envie folle de m’en aller, mais je n’osais déranger personne.  
+Dès l’entracte, je dégringolai les étages et me retrouvai dans la nuit…  
 Je pris la rue de Médicis, déserte à cette heure, et voilà qu’un « ivrogne
 incivil » m’emboîta le pas. Effrayée, je hâtai les miens, traversai en courant
 le Boul’ Mich’ et, avisant au coin de la rue Cujas une des filles « autorisées »
 qui y attendaient des « clients », je la priai de bien vouloir retenir pendant
-quelques instants cet homme qui me faisait peur, pendant que je m’éloignerais.
-simple_new_line
-
+quelques instants cet homme qui me faisait peur, pendant que je m’éloignerais.  
 Ce fut un joli hourvari !  
 Ces « dames » m’accueillirent avec force quolibets et invectives ! L’une d’elles
 cependant, plus charitable. et me voyant prête à pleurer, me prit sous sa
@@ -100,9 +86,7 @@ m’endormis comme on meurt.
 Éveillée le lendemain par de grands coups frappés à la porte, je fus conduite
 dans une salle à manger dans laquelle se trouvaient plusieurs jeunes femmes. Je
 fus pour elles un objet de curiosité. Toutes à la fois me questionnaient et —
-tant je dus leur paraître une pauvre chose — s’offraient à me protéger.
-simple_new_line
-
+tant je dus leur paraître une pauvre chose — s’offraient à me protéger.  
 L’une d’elles me demanda :
 
 — J’parie qu’tu n’as pas… de barbe au menton ?  
@@ -129,9 +113,7 @@ où elles m’offrirent de m’emmener.
 C’était un jeudi, jour de gala ; l’une me fit cadeau d’un chapeau, et chacune
 d’un quelconque « colifichet ».  
 Je me laissai conduire et diriger, éberluée autant qu’éblouie, ouvrant tout
-grand mes yeux à la découverte de cette vie nouvelle qui s’offrait à moi.
-simple_new_line
-
+grand mes yeux à la découverte de cette vie nouvelle qui s’offrait à moi.  
 Je croyais rêver.  
 Aussitôt dans ce bal, aux accents entraînants d’un orchestre endiablé, un élan
 auquel je ne pus résister m’emporta, malgré que la lutte entre ma timidité et ma
