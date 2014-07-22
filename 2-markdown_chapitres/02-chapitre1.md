@@ -356,7 +356,7 @@ mystérieuses et incohérentes.
 On en pouvait apercevoir derrière des grilles. Des agitées, des méchantes — et
 aussi, je crois, des coupables en observation.  
 J’en ai rencontré une, quelques années plus tard, qui « faisait le promenoir »
-aux Folies-Bergère ; elle m’a paru du reste une bien dangereuse fille… Je ne
+aux _Folies-Bergère_ ; elle m’a paru du reste une bien dangereuse fille… Je ne
 crois pas m’être trompée…  
 
 Pendant mon séjour en ces lieux, il m’a été donné de connaître à leurs débuts

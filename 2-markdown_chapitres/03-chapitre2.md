@@ -54,7 +54,7 @@ simple_new_line
 Je me souviens avoir vu de là-haut, deux crânes chauves et un tapis vert
 recouvrant une table. C’était lugubre !  
 Toute à mon projet, je n’ai rien entendu ni compris. Je crois me rappeler que la
-pièce devait s’intituler Les Deux Barbeaux.  
+pièce devait s’intituler _Les Deux Barbeaux_.  
 J’avais une envie folle de m’en aller, mais je n’osais déranger personne.
 simple_new_line
 
@@ -124,7 +124,7 @@ est bas, vulgaire et grossier m’a toujours causé. de frayeur et d’instincti
 répulsion.
 
 Ces joyeuses filles dont je viens de parler avaient chacune un ami, mais n’en
-demeuraient pas moins libres. Elles fréquentaient régulièrement le bal Bullier,
+demeuraient pas moins libres. Elles fréquentaient régulièrement le bal _Bullier_,
 où elles m’offrirent de m’emmener.  
 C’était un jeudi, jour de gala ; l’une me fit cadeau d’un chapeau, et chacune
 d’un quelconque « colifichet ».  
