@@ -51,6 +51,34 @@ function check_typo() {
   fi
 }
 
+function fix_typo() {
+
+  echo "Fixing ';'"
+  egrep -q '[   ]{0,};' ${FILE} && \
+    sed -i 's/[   ]\{0,\};/ ;/g' ${FILE}
+
+  echo "Fixing '?'"
+  egrep -q '[   ]{0,}\?' ${FILE} && \
+    sed -i 's/[   ]\{0,\}?/ ?/g' ${FILE}
+
+  echo "Fixing '!'"
+  egrep -q '[   ]{0,}!' ${FILE} && \
+    sed -i 's/[   ]\{0,\}!/ !/g' ${FILE}
+
+  echo "Fixing '«'"
+  egrep -q '«[   ]{0,}' ${FILE} && \
+    sed -i 's/«[   ]\{0,\}/« /g' ${FILE}
+
+  echo "Fixing '»'"
+  egrep -q '[   ]{0,}»' ${FILE} && \
+    sed -i 's/[   ]\{0,\}»/ »/g' ${FILE}
+
+  echo "Fixing ':'"
+  egrep -q '[   ]{0,}:' ${FILE} && \
+    sed -i 's/[   ]\{0,\}:/ :/g' ${FILE}
+
+}
+
 FIXTRIGGER=0
 while getopts ":f" opt;
 do
@@ -85,27 +113,5 @@ do
     echo $(check_typo ":" "before" "nbs")
     echo $(check_typo '"' "before" "none")
  fi
- [ ${FIXTRIGGER} -eq 1 ] && fix_spaces
+ [ ${FIXTRIGGER} -eq 1 ] && fix_typo
 done
-
-function fix_spaces() {
-
-  egrep -q '[   ]{0,};' ${FILE} && \
-    sed -i 's/[   ]\{0,\};/ ;/g' ${FILE}
-
-  egrep '[   ]{0,}\?' ${FILE} && \
-    sed -i 's/[   ]\{0,\}?/ ?/g' ${FILE}
-
-  egrep '[   ]{0,}!' ${FILE} && \
-    sed -i 's/[   ]\{0,\}!/ !/g' ${FILE}
-
-  egrep '«[   ]{0,}' ${FILE} && \
-    sed -i 's/«[   ]\{0,\}/« /g' ${FILE}
-
-  egrep '[   ]{0,}»' ${FILE} && \
-    sed -i 's/[   ]\{0,\}»/ »/g' ${FILE}
-
-  egrep '[   ]{0,}:' ${FILE} && \
-    sed -i 's/[   ]\{0,\}:/ :/g' ${FILE}
-
-}
