@@ -1904,10 +1904,12 @@ J’aurais aimé, jadis, de mourir en dansant…
 Si, dans l’autre monde, existent des « dancings », il n’y a rien d’impossible à
 ce que je sois conviée pour interpréter la _Danse macabre_ !
 
-[^3-1] : Le pharmacien Auguste-Arthur Géraudel (1841-1906)
-([http ://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel](http ://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel))
-est à l'origine des pastilles Géraudel.  [^3-2] : Jane Avril épouse Maurice Biais
-([http ://fr.wikipedia.org/wiki/Maurice_Biais](http ://fr.wikipedia.org/wiki/Maurice_Biais)),
+[^3-1]: Le pharmacien Auguste-Arthur Géraudel (1841-1906)
+([http://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel](http://fr.wikipedia.org/wiki/Auguste-Arthur_Géraudel))
+est à l'origine des pastilles Géraudel.
+
+[^3-2]: Jane Avril épouse Maurice Biais
+([http://fr.wikipedia.org/wiki/Maurice_Biais](http://fr.wikipedia.org/wiki/Maurice_Biais)),
 peintre, dessinateur et affichiste.
 
-[^3-3] : Il s’agit de la première guerre mondiale.
+[^3-3]: Il s’agit de la première guerre mondiale.

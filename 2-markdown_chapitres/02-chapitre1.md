@@ -392,5 +392,5 @@ Je n’en finirais pas de conter les folles élucubrations que forgeait sa pauvr
 cervelle…  
 Un jour enfin, n’en pouvant plus, je m’enfuis pour tout de bon !
 
-[^1-1] : Mot inventé par Alfred Jarry, dans Ubu roi, pour dénoncer l’avidité de
+[^1-1]: Mot inventé par Alfred Jarry, dans Ubu roi, pour dénoncer l’avidité de
 son personnage Père Ubu pour les finances.
