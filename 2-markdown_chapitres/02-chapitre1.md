@@ -375,8 +375,8 @@ Rovereto.
 Il arrivait enfin… je l’appelais « Monsieur », il me gratifiait d’une légère et
 presque amicale pichenette sur la joue, semblant autant que moi embarrassé,
 prenait ma lettre en s’en allant, et me faisait remettre sa réponse.  
-J’ai déjà dit qu’il se ruina — aidé en cela par quelques aigrefins de la « 
-Phynance »[^1-1]. Bientôt, ce fut la sinistre saisie de ce qu’il possédait
+J’ai déjà dit qu’il se ruina — aidé en cela par quelques aigrefins de la
+« Phynance »[^1-1]. Bientôt, ce fut la sinistre saisie de ce qu’il possédait
 encore. Ce lui fut un désastre auquel sa santé ne résista pas. Une congestion
 cérébrale, suivie d’une attaque de paralysie, se déclara.  
 Sa famille, lorsqu’elle en fut avisée, consentit à le faire revenir en Italie

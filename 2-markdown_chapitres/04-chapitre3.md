@@ -807,8 +807,8 @@ devaient pas être étrangères à son état d’exaltation, dont lui-même se b
 par la suite.  
 
 Édouard Dujardin, wagnérien, poète et sportif, qui fit en ce temps-là
-représenter une pièce symbol[iste] en vers libres, toute parsemée de « Floramyes
- », m’offrit l’« invitation au voyage », se proposant de combler mes caprices. Il
+représenter une pièce symbol[iste] en vers libres, toute parsemée de « Floramyes »,
+m’offrit l’« invitation au voyage », se proposant de combler mes caprices. Il
 n’aurait pas hésité à me conduire au bout du monde si j’en avais exprimé le
 désir…  
 Je me décidai, tout simplement pour Bruxelles, car je savais retrouver la troupe
@@ -827,8 +827,8 @@ Comme d’autre part, je m’étais souvenue que je lui devais « un chien de 
 chienne » à cause d’une histoire ancienne, je résolus de ne pas pousser plus
 avant notre équipée — malgré ses offres réitérées de me doter avant de nous
 marier…  
-Nous réintégrâmes donc la capitale ; après quoi — le sachant épris d’anglomanie
-—, je le persuadai de protéger Missaussi, fort mal en point dans ses affaires à
+Nous réintégrâmes donc la capitale ; après quoi — le sachant épris d’anglomanie —,
+je le persuadai de protéger Missaussi, fort mal en point dans ses affaires à
 cette époque…  
 
 Face à l’hôtel du _Chat Noir_ existait un cercle, formé de deux appartements
@@ -1126,15 +1126,14 @@ Aussi peu convaincus l’un que l’autre, nous tentâmes un soir de jouer « 
 et à la mère », mais un fou rire partagé coupa court à nos ébats… Et nous
 n’allâmes pas plus avant.  
 Il ne pouvait me considérer comme une femme, non plus qu’à moi, il ne
-représentait l’amant I  
+représentait l’amant !  
 Quel dommage que je n’aie pu l’aimer d’amour, n’ayant jamais pu lui offrir
 qu’une affection reconnaissante et admirative !  
 Mais il occupe dans mon souvenir une place unique. et je ne saurais l’oublier.  
 Incapable de la moindre compromission, artiste, lettré, musicien, savant, d’une
 modestie et d’une sensibilité sans égales, il aurait mérité qu’on l’adore.  
 Je lui dois ce qu’il peut y avoir de noble et d’élevé dans mes pensées les
-meilleures. Je n’ai jamais rencontré de ma vie un être pouvant lui être comparé
-I  
+meilleures. Je n’ai jamais rencontré de ma vie un être pouvant lui être comparé !  
 Je me souviens d’un voyage que nous fîmes ensemble. Il se rendait au musée de
 Francfort pour y juger d’un Titien contesté.  
 De là, nous nous rendîmes à Kassel et visitâmes Wilhelmshöhe, où l’empereur
