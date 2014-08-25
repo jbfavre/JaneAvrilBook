@@ -1,4 +1,4 @@
-## Avant-propos
+# Avant-propos
 
 D’anciens et rares amis qui me sont demeurés fidèles insistaient depuis quelques
 années à me conseiller d’écrire mes Mémoires.  

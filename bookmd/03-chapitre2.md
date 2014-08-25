@@ -1,4 +1,4 @@
-## Chapitre 2
+# Chapitre 2
 
 Dix-sept ans, cheveux au dos, j’en paraissais bien douze !  
 J’avais fait la connaissance d’un grand garçon qui étudiait la médecine au

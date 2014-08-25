@@ -1,4 +1,4 @@
-## Chapitre 3
+# Chapitre 3
 
 Une nouvelle existence commençait. Il me fallut apprendre que l’on doit payer
 son logis, sa pension, la valeur de l’argent ; toutes ces choses auxquelles

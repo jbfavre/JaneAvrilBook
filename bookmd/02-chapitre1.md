@@ -1,4 +1,4 @@
-## Chapitre 1
+# Chapitre 1
 
 C’est à Paris qu’en 1868 je vis le jour, au joli mois de juin — mois des
 papillons.  
