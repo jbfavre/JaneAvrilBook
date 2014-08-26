@@ -494,7 +494,8 @@ Les peintres étaient là, nombreux, qui prenaient des croquis : Steinlen,
 Willette, Sinet, d’Espagnat, Léandre, Toulouse-Lautrec, Abel Truchet, de Feure,
 Marcel-Lenoir, Picasso, Zuloaga, Conder, Louis Legrand, Anquetin, Albert et
 Eugène Guillaume, et tant d’autres modernes qui ont percé depuis. Toutes sortes
-de notabilités de tous ordres y étaient présentes chaque soir.  
+de notabilités de tous ordres y étaient présentes chaque soir.
+
 Quelques fils de « hauts et puissants bourgeois » — dont certains furent très
 près d’accrocher mon cœur — se disputaient le privilège d’oublier dans mes bras
 les mesquineries de la vie et ses vilains côtés matériels.  
@@ -581,8 +582,8 @@ Il y avait les « suiveurs », qui donnaient à rire parfois. Ils étaient
 d’ailleurs quelquefois bien ennuyeux !  
 J’avais adopté pour ma part deux méthodes pour m’en débarrasser lorsqu’ils
 devenaient trop entreprenants et m’adressaient la parole. D’un air le plus
-stupide possible, je répondais : « What do you say ? I don’t understand. »  
-Vexés que je n’aie pas compris, et me croyant une « English », ils
+stupide possible, je répondais : « _What do you say ? I don’t understand._ »  
+Vexés que je n’aie pas compris, et me croyant une « _English_ », ils
 s’éloignaient, penauds, sans demander leur reste.  
 Ou bien je m’adressais à un agent, lui demandant la direction d’une rue proche,
 en [ponctuant] pointant mon doigt vers l’importun qui prenait aussitôt la « 
@@ -671,7 +672,8 @@ devait lui aider à masquer une profonde mélancolie —, venait me prendre chez
 afin d’être certain de m’avoir dans son atelier.  
 Il m’emmenait auparavant déjeuner chez _Bainiu_ ou chez _Le Père Lathuile_ (cabarets
 fameux, maintenant disparus), où l’on dégustait des spécialités renommées
-arrosées d’un petit saint-nicolas-de-bourgueil dont je ne vous dis qu’ ça !  
+arrosées d’un petit saint-nicolas-de-bourgueil dont je ne vous dis qu’ ça !
+
 Chez lui se retrouvaient de nombreux et sincères amis, admirateurs fervents de
 son beau et puissant talent, en même temps que friands de sa verve de terrible
 gavroche.  
@@ -1035,7 +1037,8 @@ célèbre Paulus, qui régna sur le caf’conc’, connut pendant des années le
 grands succès, et dont tout le monde fredonnait les ritournelles ; et le fin
 tourlourou Polin.  
 J’en passe, et des meilleurs, qui ont chanté des refrains, lesquels ont fait le
-tour du monde.  
+tour du monde.
+
 Le _Concert de l’Horloge_, face au restaurant Ledoyen, ne le cédait en rien aux
 deux précédents. Yvette Guilbert y remporta les premiers succès de sa brillante
 carrière sous la direction du couple Debasta, qui créa par la suite _Parisiana_
@@ -1215,7 +1218,8 @@ Chaque jour après midi, une calèche mise à notre disposition nous venait pren
 pour faire notre promenade dans Hyde Park où, à loisir, nous pouvions admirer de
 luxueux équipages et leurs occupants, dont on me citait les grands noms.  
 Quelle élégance distinguée !  
-Mais il me fallait rentrer à Paris pour l’ouverture du « Jardin ».  
+Mais il me fallait rentrer à Paris pour l’ouverture du « Jardin ».
+
 J’y devais débuter dans un numéro de danses à transformations pour lequel je
 m’étais amusée à dessiner mes costumes.  
 Ces danses étaient précédées de chansons, ma jolie voix de jadis s’était
@@ -1397,7 +1401,8 @@ Qui sait même si cette artiste portée aux nues n’en acquiert pas à partir d
 moment ?  
 Encore retour au _Moulin_ ; là, seulement, était mon vrai royaume ! Je m’y sentais
 à l’aise puisque dansant au gré de ma fantaisie et que je pouvais me « défiler »
-lorsque des complimenteurs paralysaient mes pas.  
+lorsque des complimenteurs paralysaient mes pas.
+
 Pourtant j’acceptai, un hiver, de faire partie d’un quadrille au _Casino de
 Paris_. C’est dans cet établissement que je vis pour la première fois
 Mistinguett, venue se présenter, sollicitant d’être entendue en audition. Elle
@@ -1507,7 +1512,8 @@ L’emploi était cependant fort recherché par beaucoup de jolies filles qui
 espéraient, par le moyen de cette exhibition, celui d’en sortir bientôt dès
 qu’elles auraient été remarquées du bailleur de fonds espéré d’elles.  
 Définitivement, j’abandonnai la carrière et retournai à la danse, la seule joie
-qui me restât.  
+qui me restât.
+
 La fin du siècle s’accélérait ; c’était le temps où Mme Steinheil dut quitter,
 au milieu d’une conversation, notre président Félix Faure qui se mourait, peu
 après avoir contribué aux fêtes de l’Alliance franco-russe. De grands travaux
@@ -1697,8 +1703,7 @@ l’entracte Flers me dit sur le « plateau » :
 Un soir de gala, il organisa, entre autres attractions, un concours de
 _cake-walk_, qui commençait de s’acclimater à Paris. L’ayant vu danser en
 Amérique, je m’en tirai fort bien, et il me fut facile de gagner un prix, en
-l’occurrence un corset ! Moi qui n’en portais jamais !
-
+l’occurrence un corset ! Moi qui n’en portais jamais !  
 Les couples danseurs figuraient : « la Belle Otéro » dans les bras de Catulle
 Mendès, « la princesse de Chimay » dans ceux de Rigo, le tzigane, « la princesse
 de Saxe » avec le musicien qui l’avait enlevée. Pour moi, je représentais la
@@ -1717,13 +1722,13 @@ Lugné me fit encore l’honneur de m’appeler pour danser devant le mur d’Or
 dans une tragédie antique en vers de Joachim Gasquet, où je me trouvai mêlée aux
 « as » de la Comédie-Française : Albert Lambert, Dorival, Gauthier, Marguerite
 Moreno, Lucie Brille, Segond-Weber, Germaine Dermoz, sa sœur, la belle Jane
-Delvair, Aimée Tessandieré…
-
+Delvair, Aimée Tessandieré…  
 À peine vêtue, en bacchante, les pieds nus (avant que parût Isadora Duncan),
 j’ai dansé et mimé sur la musique des vers, aux sons muets d’une lyre dont
 semblait jouer une belle fille qui représentait une déesse.  
 Paul Mariéton, Mme Du Gast, ainsi que de nombreux « félibres », me louèrent…
-J’en demeurai pour un temps un peu enorgueillie…   
+J’en demeurai pour un temps un peu enorgueillie…
+
 Et puis encore, voilà que mon pauvre amoureux, qui n’avait cessé de correspondre
 avec moi, revint en France. Il n’avait pas abandonné son projet de nous marier,
 me promettait une vie douce et calme toute remplie de tendresse. Je me laissai
@@ -1745,8 +1750,7 @@ des « officiels ».
 On ne voyait plus que des gens d’affaires, des boursiers, le milieu était d’un
 niveau moindre, commun et sans vraie gaieté ni esprit, quoique très bruyant.  
 Était partie à jamais la spirituelle et poétique bohème… je n’y dansai qu’un
-hiver…
-
+hiver…  
 À nouveau, je me confinai dans cette vie de famille pour laquelle je sentais
 bien que je n’étais pas faite, mais que je jugeais devoir être profitable à mon
 enfant.  
