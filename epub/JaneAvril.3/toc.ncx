@@ -41,5 +41,11 @@
       </navLabel>
       <content src="ch004.xhtml" />
     </navPoint>
+    <navPoint id="navPoint-5" playOrder="5">
+      <navLabel>
+        <text>Illustrations</text>
+      </navLabel>
+      <content src="ch005.xhtml" />
+    </navPoint>
   </navMap>
 </ncx>
